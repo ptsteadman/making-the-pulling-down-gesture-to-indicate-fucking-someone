@@ -1,4 +1,4 @@
-# Abstract of 'The Perfect Story', v0.2.0
+# Abstract of 'The Perfect Story'
 
 A young person is dog-sitting for an older couple.  The older couple is on
 vacation someplace remote, and the young person is staying with the dog in a
