@@ -1,6 +1,7 @@
-# The Perfect Story
+# The Dog Story
 
-Ally
-Ryan's
+The Ryans' house was a shock of lushness and comfort.  Lisa was used to the
+fucking linoleum of her dorm, and now she was sleeping in this incredible bed in
+the home of two great architects.  Her body felt like it was floating.
 
-Ally got a cab to the Ryan's home in 
+She'd be there until the Ryans got back from Cuba, their spring break trip.  
