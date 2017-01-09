@@ -7,10 +7,10 @@ The Ryans were practicing architects, working at a firm they had founded in the
 80's.  Dr. Ryan also taught at the College of Fine Arts, and was Lisa's faculty
 advisor.  Dr. Ryan knew Lisa well enough to know that she would jump at the
 chance to spent winter break at the Ryans' home dogsitting  while they were on a
-trip to Cuba. 
+trip to Cuba.
 
 Lisa didn't want to go home for Christmas, and in fact had sworn a year ago that
-she would find some acceptable reason to avoid the family Christmas routine.  
+she would find some acceptable reason to avoid the family Christmas routine.
 
 As the sun set on Thursday afternoon, Lisa tried to cook pasta while texting
 Iris. She was wearing a bathrobe.
@@ -35,3 +35,5 @@ Lisa sat in a leather chair under a lamp with a long metal neck. She felt
 accomplished.
 
 "Liv -- yeah -- nice to meet you -- you're from Instagram right?"
+
+
