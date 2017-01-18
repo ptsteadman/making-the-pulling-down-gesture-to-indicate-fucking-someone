@@ -7,13 +7,12 @@ exchange students of the district.
 
 Hero shrugged. "DVD," he said.
 
-Alex had noticed all six seasons of "Megastructures" set behind a glass case in
+Alex had noticed all six seasons of "Megastructures" behind a glass case in
 his living room.
 
 The living room was full of teenagers from the industrial nations of the world,
-mostly Brazil, Japan, Mexico, the United States, Germany, and France.  The
-students were in small groups around portable hotpots set up on rolling carts,
-dipping squid, cabbage and tofu into the boiling red water.
+sitting in small groups around portable hotpots, dipping squid, cabbage and tofu
+into the boiling red water.
 
 "How many have you watched?"
 
@@ -28,7 +27,7 @@ and then swept the slices into his hand.
 
 "I'll introduce you to my dog," said Hero.
 
-Alex followed Hero into a room off of the kitchen, and pointed into a dark cave.
+Alex followed Hero into a dark room off of the kitchen.
 
 "Here she is."
 
@@ -45,8 +44,8 @@ As soon as he entered, Emilio draped his arm over his shoulder.
 "Let's take a picture," said Emilio, gesturing towards the windows overlooking
 Taipei.
 
-"Mr. Hero, you have a beautiful house, a really sexy house," yelled Emilio as
-Alex found a spot among the Mexicans and prepared to smile.
+"Mr. Hero, you have a beautiful house, a really sexy house," yelled Emilio.
+Alex found a spot among the students and prepared to smile.
 
 Hero's home was like a jewelry case, but cool and wet, smelling slightly of
 sulphur, from the dark stone underlying the hills of Yangmingshan.
@@ -59,42 +58,23 @@ Emilio took the picture. The group crowded around Emilio's camera.
 
 ---
 
-While Alex was waiting for the next episode of Gossip Girl to buffer, he noticed
-that his mom was online. He pressed the call button on Skype. The sound of the
-ringtone was desolate but he appreciated that he was finally reaching back to
-his family. He hadn't called in over a month.
+Alex was lying in bed with his laptop, waiting for an episode of Gossip Girl to
+buffer. He noticed that his mom was on Skype, and pressed the call button. The
+sound of the ringtone was desolate but he appreciated that he was finally
+reaching back to his family. He hadn't called in over a month.
 
 "Hi Alex! How's it going?" his mother said. Alex could tell she was in the
 kitchen doing something.
 
 "Really good," he said. His voice didn't work at first.
 
-"It's late there, after midnight right?"
-
-"Yeah, I'm working on my college essays."
-
-"How are they going?"
-
-"Okay," said Alex. "I'll have some more time during the Mid-Autumn festival."
-
-His mother asked questions about his host family, the neighborhood where he was
-living, his school, and the other exchange students. Alex tried to think up
-questions to ask about his brothers, but it was hard.
-
 "Just get the essays done, Alex!" said his mother as they ended the call, after
 thirty two minutes. It was two AM.
 
 In the episode of Gossip Girl, Serena kissed Adam fast and improbably, in the
-vaulted entrance to a tower. Beautiful. Alex hoped against hope that it would
-happen to him somehow. It would be so terrible if it didn't, he didn't know how
-he could live.
-
-
-
-Bad Romance
-
-He missed so much: late for the New Year's trip to South Taiwan. He had
-wandered around Taipei train station for hours.
+vaulted entrance to a tower. Beautiful. Alex hoped that it would happen to him
+soon. It would be so terrible if it didn't. He didn't know how he could live if
+it didn't.
 
 ---
 
@@ -102,7 +82,44 @@ wandered around Taipei train station for hours.
 
 "Yes, I understand," said Alex.
 
+"There are issues with your lateness to school."
 
+They were eating at a French-themed restaurant. Alex told Hero that his lateness
+and other problems were caused by his college essays, and that it'd get better
+once he finished. Hero didn't seem moved.
+
+"That doesn't change the fact that your teacher feel disrespected," said Hero.
+
+face stuck to desk
+
+a sort of movie character with his glasses and suit
+Alex was unable to understand the interactions between the Rotary members and
+seemed mostly unconcerned
+
+Hero slurped at his French onion soup. Alex felt annoyed with him. The first
+time Alex heard Hero speak at the orientation event for the exchange students,
+he knew Hero was special somehow. He'd felt shivers as Hero welcomed the
+students to Taiwan and talked about their monthly allowance, because he knew
+Hero was speaking from a place that addressed the experience of being young in a
+strange new city.
+
+"How do you say 'respect' in Mandarin?"
+Alex talked about the programs that he wanted to get into.
+
+It's language that they connect about.
+
+Ashamed of his essay.
+
+"What are you doing here? If there is no reason for you to be here, I recommend
+that you go home."
+
+"I don't have many projects currently."
+
+
+Bad Romance
+
+He missed so much: late for the New Year's trip to South Taiwan. He had
+wandered around Taipei train station for hours.
 
 
 Alex didn't want to seem desperate, lonely in this beautiful house.
