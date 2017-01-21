@@ -133,6 +133,40 @@ Hero didn't say much.
 
 "Being an architect is romantic," said Hero.
 
+Alex followed Hero out of the steam room. His skin felt clammy. They entered a
+blue-tiled room of baths, some cold and some hot.
+
+The mood was similar to the baths in Yangmingshan but without the odd, soft
+sulphur water and worn facilities.
+
+Hero grabbed a pot of gritty soap and a sponge and pointed to a vaulted chamber.
+He turned on a heavy flow of water from an overhead faucet.
+
+"Here, I'll give you a scrub. Very good for your skin."
+
+Alex stood, tense, under the lukewarm water as Hero scrubbed away at his back
+and neck. This was just generally awkward. Hero reached under Alex's swim trunks
+and grabbed his groin, his fingers touching Alex's balls. Alex didn't move or
+say anything, thinking of pushing Hero away, perhaps someone slipping. After
+about fifteen seconds Hero pulled his hand from under Alex's swim trunks and
+gave his legs a quick sponge.
+
+Alex thought about cultural differences, and if he was interpreting the moment
+correctly.
+
+"Now let's get in the cold fresh water. Last step."
+
+Alex turned around and walked directly into the waist-deep cold pool, which was
+shockingly cold. He sat down in it. There were a few other men. Hero seemed
+untroubled.
+
+"Fresh water. Hard to find freshwater pool, with no chlorine," said Hero, in
+English. Alex always got a bit annoyed when Hero used English.
+
+"After we get dressed, I recommend we get hamburgers," said Hero, in Mandarin
+now. "American food tastes best after exercise."
+
+"Absolutely," said Alex.
 
 
 "That's one of the most important things about a good building. It should make
