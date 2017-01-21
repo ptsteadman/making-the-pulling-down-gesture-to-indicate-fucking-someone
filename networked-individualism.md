@@ -1,4 +1,4 @@
-# Luomandike
+# Romantic
 
 Alex spoke with P.P. Hero in the kitchen of his home, at an event for the
 exchange students of the district.
@@ -7,12 +7,10 @@ exchange students of the district.
 
 Hero shrugged. "DVD," he said.
 
-Alex had noticed all six seasons of "Megastructures" behind a glass case in
-his living room.
-
-The living room was full of teenagers from the industrial nations of the world,
-sitting in small groups around portable hotpots, dipping squid, cabbage and tofu
-into the boiling red water.
+Alex had noticed all six seasons of "Megastructures" behind a glass case in his
+living room.  The living room was full of teenagers from the industrial nations
+of the world, sitting in small groups around portable hotpots, dipping squid,
+cabbage and tofu into the boiling red water.
 
 "How many have you watched?"
 
@@ -27,12 +25,12 @@ and then swept the slices into his hand.
 
 "I'll introduce you to my dog," said Hero.
 
-Alex followed Hero into a dark room off of the kitchen.
+Alex followed Hero into a dark room adjacent to the kitchen.
 
 "Here she is."
 
-A yellow lab wagged its tail at Hero and Alex. Hero kneeled on a pillow besides
-the dog's bed and let the dog eat the taro out of his hand.
+A yellow lab wagged its tail quietly at Hero and Alex. Hero kneeled on a pillow
+besides the dog's bed and let the dog eat the taro out of his hand.
 
 "What's her name?"
 
@@ -41,10 +39,9 @@ the dog's bed and let the dog eat the taro out of his hand.
 After a period of silence, Alex excused himself and returned to the living room.
 As soon as he entered, Emilio draped his arm over his shoulder.
 
-"Let's take a picture," said Emilio, gesturing towards the windows overlooking
+"Let's do a picture," said Emilio, gesturing towards the windows overlooking
 Taipei.
 
-"Mr. Hero, you have a beautiful house, a really sexy house," yelled Emilio.
 Alex found a spot among the students and prepared to smile.
 
 Hero's home was like a jewelry case, but cool and wet, smelling slightly of
@@ -52,33 +49,13 @@ sulphur, from the dark stone underlying the hills of Yangmingshan.
 
 Emilio took the picture. The group crowded around Emilio's camera.
 
-"Oh no, lets do another," said Emilio.  He turned to Alex.
+"Oh no, another one, another one," said Emilio.  He turned to Alex.
 
 "Your nose, it looks like a boner on your face."
 
 ---
 
-Alex was lying in bed with his laptop, waiting for an episode of Gossip Girl to
-buffer. He noticed that his mom was on Skype, and pressed the call button. The
-sound of the ringtone was desolate but he appreciated that he was finally
-reaching back to his family. He hadn't called in over a month.
-
-"Hi Alex! How's it going?" his mother said. Alex could tell she was in the
-kitchen doing something.
-
-"Really good," he said. His voice didn't work at first.
-
-"Just get the essays done, Alex!" said his mother as they ended the call, after
-thirty two minutes. It was two AM.
-
-In the episode of Gossip Girl, Serena kissed Adam fast and improbably, in the
-vaulted entrance to a tower. Beautiful. Alex hoped that it would happen to him
-soon. It would be so terrible if it didn't. He didn't know how he could live if
-it didn't.
-
----
-
-"P.P. Sunshine asked that I meet with you," said Hero.
+"P.P. Sunshine requested that I meet with you," said Hero.
 
 "Yes, I understand," said Alex.
 
@@ -115,8 +92,50 @@ that you go home."
 
 "I don't have many projects currently."
 
+---
 
-Bad Romance
+In the beginning of December, Hero invited Alex to a health club on the top
+floor of the Fuxing Sogo department store. Children were waiting for their
+parents in the lobby, each with a disintegrating Christmas craft made from
+evergreen boughs and pasta.
+
+The pool was surprisingly large and cold. After swimming Alex went to the stream
+room, a long room with tall windows. Hero was there, with a wet towel over his
+eyes. Two grey-haired men were speaking in German.
+
+Alex sat down next to Hero.
+
+"What do you feel about this building?" asked Hero.
+
+"I feel it's strange," said Alex, in Mandarin. "I feel far away from my home."
+
+"I worked on this building in the early nineties."
+
+Hero removed the towel from his eyes and used it to wipe a circle on the window
+between them. Alex could now see the overcast sky and dense streets twenty
+stories below.
+
+"I designed the horizontal beams over the gap, twelve stories high," said Hero,
+switching to English and pointing out a moulding below.  "They are wide enough
+to walk across. No one will walk across, but people will imagine."
+
+"Important," said Alex.
+
+Hero asked Alex how his college essays were going, and Alex told him that he
+really just wanted to keep learning Mandarin, maybe in Beijing. It was
+distasteful to think about going back to study Communications in the United
+States, so that he could work at a Media company someday.
+
+Hero didn't say much.
+
+"Why did you study architecture?" asked Alex.
+
+"Being an architect is romantic," said Hero.
+
+
+
+"That's one of the most important things about a good building. It should make
+you feel like there's enough time."
 
 He missed so much: late for the New Year's trip to South Taiwan. He had
 wandered around Taipei train station for hours.
