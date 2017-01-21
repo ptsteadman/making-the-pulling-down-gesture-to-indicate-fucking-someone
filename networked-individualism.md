@@ -122,9 +122,10 @@ to walk across. No one will walk across, but people will imagine."
 "Important," said Alex.
 
 Hero asked Alex how his college essays were going, and Alex told him that he
-really just wanted to keep learning Mandarin, maybe in Beijing. It was
-distasteful to think about going back to study Communications in the United
-States, so that he could work at a Media company someday.
+really just wanted to keep learning Mandarin, maybe spend a year studying at
+Beijing Normal University. It was distasteful to think about going back to study
+Communications in the United States, so that he could work at a media company
+someday.
 
 Hero didn't say much.
 
