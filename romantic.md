@@ -1,16 +1,16 @@
 # Romantic
 
-Alex spoke with P.P. Hero in the kitchen of his home, at an event for the
-exchange students of the district.
+Alex spoke with P.P. Hero in the kitchen of his home.
 
 "You have so many DVDs," said Alex. "How do you say 'DVD' in Mandarin?"
 
 Hero shrugged. "DVD," he said.
 
 Alex had noticed all six seasons of "Megastructures" behind a glass case in his
-living room.  The living room was full of teenagers from the industrial nations
-of the world, sitting in small groups around portable hotpots, dipping squid,
-cabbage and tofu into the boiling red water.
+living room.
+
+In the living room, small groups of exchange students sat in small groups around
+portable hotpots, dipping squid, cabbage and tofu into the boiling red water.
 
 "How many have you watched?"
 
@@ -67,30 +67,16 @@ once he finished. Hero didn't seem moved.
 
 "That doesn't change the fact that your teacher feel disrespected," said Hero.
 
-face stuck to desk
-
-a sort of movie character with his glasses and suit
-Alex was unable to understand the interactions between the Rotary members and
-seemed mostly unconcerned
+Alex thought of how he felt when he woke up in class, his face stuck to the
+desk.
 
 Hero slurped at his French onion soup. Alex felt annoyed with him. The first
 time Alex heard Hero speak at the orientation event for the exchange students,
 he knew Hero was special somehow. He'd felt shivers as Hero welcomed the
-students to Taiwan and talked about their monthly allowance, because he knew
-Hero was speaking from a place that addressed the experience of being young in a
-strange new city.
+students to Taiwan, looking like a sort of movie character with his designer
+glasses and suit.
 
-"How do you say 'respect' in Mandarin?"
-Alex talked about the programs that he wanted to get into.
-
-It's language that they connect about.
-
-Ashamed of his essay.
-
-"What are you doing here? If there is no reason for you to be here, I recommend
-that you go home."
-
-"I don't have many projects currently."
+"How do you say 'respect' in Mandarin?" asked Alex.
 
 ---
 
