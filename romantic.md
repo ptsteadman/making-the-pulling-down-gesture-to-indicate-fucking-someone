@@ -95,13 +95,12 @@ that you go home."
 ---
 
 In the beginning of December, Hero invited Alex to a health club on the top
-floor of the Fuxing Sogo department store. Children were waiting for their
-parents in the lobby, each with a disintegrating Christmas craft made from
-evergreen boughs and pasta.
+floor of the Fuxing Sogo department store. Children were waiting impatiently in
+the lobby, each with a Christmas craft made from evergreen boughs and pasta.
 
 The pool was surprisingly large and cold. After swimming Alex went to the stream
-room, a long room with tall windows. Hero was there, with a wet towel over his
-eyes. Two grey-haired men were speaking in German.
+room. Hero was there, with a wet towel over his eyes.  Two grey-haired men were
+speaking in German.
 
 Alex sat down next to Hero.
 
@@ -111,33 +110,22 @@ Alex sat down next to Hero.
 
 "I worked on this building in the early nineties."
 
-Hero removed the towel from his eyes and used it to wipe a circle on the window
-between them. Alex could now see the overcast sky and dense streets twenty
-stories below.
+Hero removed the towel from his eyes and used it to wipe a circle on the tall
+window between them. Alex could now see the overcast sky and dense streets
+twenty stories below.
 
-"I designed the horizontal beams over the gap, twelve stories high," said Hero,
+"I designed the horizontal beams over that gap, twelve stories high," said Hero,
 switching to English and pointing out a moulding below.  "They are wide enough
-to walk across. No one will walk across, but people will imagine."
+to walk across. No one will ever walk across, but people will imagine."
 
 "Important," said Alex.
-
-Hero asked Alex how his college essays were going, and Alex told him that he
-really just wanted to keep learning Mandarin, maybe spend a year studying at
-Beijing Normal University. It was distasteful to think about going back to study
-Communications in the United States, so that he could work at a media company
-someday.
-
-Hero didn't say much.
 
 "Why did you study architecture?" asked Alex.
 
 "Being an architect is romantic," said Hero.
 
-Alex followed Hero out of the steam room. His skin felt clammy. They entered a
-blue-tiled room of baths, some cold and some hot.
-
-The mood was similar to the baths in Yangmingshan but without the odd, soft
-sulphur water and worn facilities.
+Alex followed Hero out of the steam room, his skin suddenly becoming clammy.
+They entered a blue-tiled room of baths, some cold and some hot.
 
 Hero grabbed a pot of gritty soap and a sponge and pointed to a vaulted chamber.
 He turned on a heavy flow of water from an overhead faucet.
@@ -147,23 +135,23 @@ He turned on a heavy flow of water from an overhead faucet.
 Alex stood, tense, under the lukewarm water as Hero scrubbed away at his back
 and neck. This was just generally awkward. Hero reached under Alex's swim trunks
 and grabbed his groin, his fingers touching Alex's balls. Alex didn't move or
-say anything, thinking of pushing Hero away, perhaps someone slipping. After
-about fifteen seconds Hero pulled his hand from under Alex's swim trunks and
-gave his legs a quick sponge.
+say anything, thinking of pushing Hero away, someone slipping. After about
+fifteen seconds Hero pulled his hand from under Alex's swim trunks and gave his
+legs a quick sponge.
 
-Alex thought about cultural differences, and if he was interpreting the moment
+"Now let's get in the cold water. Last step," said Hero.
+
+Alex turned around and walked directly into the waist-deep pool, which was
+shockingly cold. He sat down in it. There were a few other men.
+
+Alex thought about cultural differences, wondering if he was interpreting the moment
 correctly.
 
-"Now let's get in the cold fresh water. Last step."
-
-Alex turned around and walked directly into the waist-deep cold pool, which was
-shockingly cold. He sat down in it. There were a few other men. Hero seemed
-untroubled.
-
 "Fresh water. Hard to find freshwater pool, with no chlorine," said Hero, in
-English. Alex always got a bit annoyed when Hero used English.
+English.  Alex always got a bit annoyed when Hero used English. Alex looked over
+at Hero.
 
-"After we get dressed, I recommend we get hamburgers," said Hero, in Mandarin
+"After getting dressed, let's get hamburgers, how about?" said Hero, in Mandarin
 now. "American food tastes best after exercise."
 
 "Absolutely," said Alex.
