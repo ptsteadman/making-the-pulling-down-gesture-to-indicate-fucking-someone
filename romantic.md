@@ -1,11 +1,11 @@
 # Romantic
 
-Early in December, P.P. Hero invited Alex to a health club on the top floor of the
-Fuxing Sogo department store. Children were waiting impatiently in the lobby,
-each with a Christmas craft made from evergreen boughs and pasta.
+Early in December, P.P. Hero invited Alex to a health club on the top floor of
+the Fuxing Sogo department store. Children were waiting impatiently in the
+lobby, each with a Christmas art project made from evergreen boughs and pasta.
 
-The pool was surprisingly large and cold. After a short swim, Alex went to the
-long, narrow steam room, which was empty except for Hero and two grey-haired men
+The pool was surprisingly large and cold. After a short swim, Alex joined Hero
+in the long, narrow steam room. It was empty except for two grey-haired men
 speaking in German.
 
 Alex sat down next to Hero. He had a wet towel over his eyes.
@@ -62,11 +62,11 @@ again.
 
 ---
 
-Hero invited Alex to stay at his home during winter break. Hero would be in
+Hero invited Alex to stay at his home during winter break. He was going to
 Canada for a project, and needed someone to watch his dog.
 
-"You're learning a lot from Hero," said Alex's host mother. "How to play chess,
-how to be a gentleman."
+"You're learning a lot from Hero," said Alex's host mother, when he asked if he
+could stay there. "How to play chess, how to be a gentleman."
 
 Hero was friends with Alex's host mother, an older, wealthy woman who lived in a
 fashionable area of Taipei.
@@ -76,8 +76,7 @@ isolated home in the sulphuric hills north of Taipei would be perfect.
 
 ---
 
-Alex took the long MRT ride to the edge of the city, and then took a cab to Hero's
-home.
+Alex took the long MRT ride to the edge of the city, and then a cab.
 
 It wasn't his first time visiting Hero's home. In August, Hero had held a
 reception for the exchange students of the district.  In the living room, small
@@ -92,7 +91,6 @@ Hero shrugged. "DVD," he said.
 
 Alex had noticed all six seasons of "Megastructures" behind a glass case in his
 living room.
-
 
 "How many have you watched?"
 
@@ -119,6 +117,12 @@ besides the dog's bed and let the dog eat the taro out of his hand.
 "Daisy," said Hero.
 
 ---
+
+Waking up in Hero's home was a refreshing, almost magical experience. Weak
+winter sun had warmed the wooden floors of the east side of the house, inviting
+Alex to get out of bed.
+
+bed
 
 Alex tried to use some of Hero's fancy ingredients. The pasta ended up being
 too salty. The pot lay unwashed in the soapstone sink until he realized that
