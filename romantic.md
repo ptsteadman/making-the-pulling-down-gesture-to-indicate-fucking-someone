@@ -2,13 +2,13 @@
 
 Early in December, P.P. Hero invited Alex to a health club on the top floor of
 the Fuxing Sogo department store. Children were waiting impatiently in the
-lobby, each with a Christmas art project made from evergreen boughs and pasta.
+lobby, each with a Christmas craft project made from paper and evergreen boughs.
 
 The pool was surprisingly large and cold. After a short swim, Alex joined Hero
 in the long, narrow steam room. It was empty except for two grey-haired men
 speaking in German.
 
-Alex sat down next to Hero. He had a wet towel over his eyes.
+Alex sat down next to Hero, who had a wet towel over his eyes.
 
 "What do you feel about this building?" asked Hero.
 
@@ -21,12 +21,17 @@ them, revealing the overcast sky outside.
 
 "Wow."
 
-Hero pointed out a sub-roof, still far above the dense streets below. "I
-designed the horizontal beams over that gap, twelve stories high," said Hero,
-switching to English.  "They are wide enough to walk across. No one will ever
-walk across, but people will imagine."
+Hero pointed out a sub-roof, far above the dense streets below. "I designed the
+horizontal beams over that gap, twelve stories high," said Hero, switching to
+English. "They are wide enough to walk across. No one will ever walk across,
+but people will imagine."
 
 "I see," said Alex.
+
+They were silent for about ten minutes. Alex wondered how Hero had decided to
+become an architect, and tried not to think about what he'd study in college.
+
+---
 
 Alex followed Hero out of the steam room, his skin suddenly clammy.  They
 entered a blue-tiled room of baths, some cold and some hot.
@@ -62,26 +67,26 @@ again.
 
 ---
 
-Hero invited Alex to stay at his home during winter break. He was going to
-Canada for a project, and needed someone to watch his dog.
+Over lunch at the Sheridan hotel, Hero invited Alex to stay at his home during
+winter break. He was going to Canada for a project, and needed someone to watch
+his dog.
 
-"You're learning a lot from Hero," said Alex's host mother, when he asked if he
-could stay there. "How to play chess, how to be a gentleman."
+"You're learning a lot from Hero," said Alex's host mother, gesturing with an
+empty snail shell. "How to play chess, how to be a gentleman." She punched
+Hero's arm. They were old friends.
 
-Hero was friends with Alex's host mother, an older, wealthy woman who lived in a
-fashionable area of Taipei.
-
-Alex needed a quiet place to work on his college application essays, and Hero's
+Alex lived with his host mother in a wealthy, distracting area of Taipei.  He
+needed a quiet place to work on his college application essays, and Hero's
 isolated home in the sulphuric hills north of Taipei would be perfect.
 
 ---
 
 Alex took the long MRT ride to the edge of the city, and then a cab.
 
-It wasn't his first time visiting Hero's home. In August, Hero had held a
-reception for the exchange students of the district.  In the living room, small
-groups of exchange students sat in small groups around portable hotpots, dipping
-squid, cabbage and tofu into the boiling red water.
+It wasn't Alex's first time at Hero's home. In August, Hero had held a reception
+for the all of the Rotary exchange students. In the living room, small groups of
+exchange students sat in small groups around portable hotpots, dipping squid,
+cabbage and tofu into the boiling red water.
 
 Alex put his stuff in the large guest bedroom, and met Hero in the kitchen.
 
@@ -118,11 +123,9 @@ besides the dog's bed and let the dog eat the taro out of his hand.
 
 ---
 
-Waking up in Hero's home was a refreshing, almost magical experience. Weak
-winter sun had warmed the wooden floors of the east side of the house, inviting
-Alex to get out of bed.
-
-bed
+Waking up in Hero's home was a refreshing, almost magical experience. The winter
+sun had warmed the wooden floors of the guest bedroom, inviting Alex to get out
+of bed.
 
 Alex tried to use some of Hero's fancy ingredients. The pasta ended up being
 too salty. The pot lay unwashed in the soapstone sink until he realized that
