@@ -171,21 +171,20 @@ accomplished.
 It was his decade. In 2020 he'd be 27. His character would be more or less set.
 He had ten years to become something and it was starting.
 
-Alex could see fireworks shooting off of Taipei 101, looking like tiny grains of
-light at the distance.
+Alex could see fireworks shooting off Taipei 101, tiny grains of light at the
+distance.
 
 The last person, Emilio, didn't leave until almost 4:30. Alex fell asleep on the
 couch.
 
 ---
 
-In the morning, Alex went into the laundry room to feed Daisy, and she was dead.
-Her body was no longer warm. Alex touched her bony joints with morbid
-fascination.
+In the morning, Alex went into the laundry room to feed Daisy, hungover and
+happy. Daisy was dead. Alex touched her bony joints with morbid fascination. Her
+body was no longer warm.
 
-He texted Hero that Daisy was dead. He wondered if the number would actually
-work. He barely understood how to use his phone, it was on loan from another
-friend of his host mother's.
+He texted Hero that Daisy was dead. Alex barely understood how to use his phone,
+it was on loan from another friend of his host mother's.
 
 Hero responded almost immediately with an apology. Alex wrote that Daisy was
 very peaceful.
@@ -197,16 +196,15 @@ What a situation, thought Alex. He sent Paula an email.
 
 ---
 
-A few hours later, Alex set off down Hero's driveway carrying a large luxury
-duffel bag containing Daisy's body. He had wrapped up the body in a garbage bag
-first, worried about the possiblity of the dog's bowels leaking.
+A few hours later, Alex set off down Hero's driveway carrying a luxury duffel
+bag containing Daisy's body. He had wrapped up the body in a garbage bag first,
+worried about the possiblity of the dog's bowels leaking.
 
-Carrying the bag was a pain, but Alex had not been able to find a good taxi
-service, and it was only about a mile to the MRT station. The feeling of the bad
-knocking up against Alex's thighs was still unpleasant. Alex thought about how
-all of the complexity that was Daisy was still in the bag, just now inert. It
-was weird, and quiet. It was New Year's Day. Alex was surprised by the scent of
-a Christmas tree, lying by the side of the road. It made him appreciate America.
+It was only about a mile to the MRT station. The feeling of the bag knocking up
+against Alex's thighs was still unpleasant.
+
+It was New Year's Day. Alex was surprised by the scent of a Christmas tree,
+lying by the side of the road. It made him appreciate America.
 
 He was starting to think about hitchhiking when a blue, three-wheeled truck
 pulled over in front of him.
@@ -218,32 +216,31 @@ reddened teeth.
 
 "I'll take you!" said the driver.
 
-Leaving the engine running, he got out and helped Alex lift the duffel bag over
-the truck's tailgate.
+Leaving the engine running, the driver got out and helped Alex lift the duffel
+bag over the truck's tailgate.
 
 "Pretty heavy! What's in it?"
 
 "Gifts," said Alex, getting into the passenger seat. The cab of the truck was
-full of discarded styrofoam food packaging. He felt optimistic.
+full of discarded styrofoam packaging. Alex suddenly felt optimistic.
 
 "I was visiting family," continued Alex, as the driver pulled back onto the road
 rapidly.
 
 "Impressive!" said the driver. "Are you Christian?"
 
-"My family is Christian, myself, I'm not sure." Alex felt acutely aware of his
-body.
+"My family is Christian, myself, I'm not sure."
 
-They quickly arrived at Songshan station, an unusual MRT station nestled into
-the base of the mountain.
+They quickly arrived at Songshan station, nestled into the base of the mountain.
 
-"We're here!" said the driver, pulling up into the empty bus lane. He started to
-roll a cigarette. Alex got out of the car, looking up at the tracks to see if
-a train was coming.
+"We're here!" said the driver, pulling into the empty bus lane. He started to
+roll a cigarette. Alex got out of the car, looking up at the tracks to see if a
+train was coming.
 
-"One second!" said the driver around the cigarette, and then quickly closed the
+"One second," said the driver around the cigarette, and then quickly closed the
 passenger door and stepped on the gas, the two-stroke engine of the small truck
-whining. Just before the truck whipped around the corner at the end of the
-block, Alex thought to look for a license plate, but there wasn't one. For a
-moment Alex wondered if the driver had simply forgotten about the large duffel
-bag in the back of his truck.
+whining.
+
+Just before the truck turned around the corner, Alex thought to look for a
+license plate. There wasn't one. For a moment Alex wondered if the driver had
+simply forgotten about the large duffel bag in the back of his truck.
