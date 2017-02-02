@@ -108,7 +108,7 @@ that he'd forgotten what he was looking for.
 "Ah, so," he said, selecting a taro root. He cut it up on the jet black counter
 and then swept the slices into his hand.
 
-"I'll introduce you to my dog," said Hero.
+"I'll introduce you to my dog again," said Hero.
 
 Alex followed Hero into a dark room adjacent to the kitchen.
 
@@ -141,29 +141,17 @@ During the first week of school, there was a cool girl with short hair and blue
 eyes in Alex's class. He didn't really understand what was going on, but it was
 obvious that she was trouble.
 
-On his way home on Friday night, he ran into the girl with short hair. She was
-standing with a group of friends, holding a white Yamaha racing bike with
-glowing wheels.  Alex had never seen someone look so cool. He tried to talk to
-her but she didn't really speak English, at all, unlike many of his other
-classmates.
-Hero often took Alex and his host mother out for lunch at hotels around
-
-Alex didn't want to seem desperate, lonely in this beautiful house.
-
-Alex sat in a leather chair under a lamp with a long metal neck. He felt
-accomplished.
+On his way home on Friday night, he ran into her. She was standing with a group
+of friends, holding a white Yamaha racing bike with glowing wheels.  Alex had
+never seen someone look so cool. He tried to talk to her but she didn't really
+speak English, at all, unlike many of his other classmates.
 
 ---
-
-"P.P. Sunshine requested that I meet with you," said Hero.
-
-"Yes, I understand," said Alex.
 
 "There are issues with your lateness to school."
 
 They were eating at a French-themed restaurant. Alex told Hero that his lateness
-and other problems were caused by his college essays, and that it'd get better
-once he finished.
+and other problems were caused by his college essays.
 
 "That doesn't change the fact that your teacher is disrespected," said Hero.
 
@@ -176,3 +164,86 @@ glasses and suit.
 "How do you say 'respect' in Mandarin?" asked Alex.
 
 ---
+
+Alex sat in a leather chair under a lamp with a long metal neck. He felt
+accomplished.
+
+It was his decade. In 2020 he'd be 27. His character would be more or less set.
+He had ten years to become something and it was starting.
+
+Alex could see fireworks shooting off of Taipei 101, looking like tiny grains of
+light at the distance.
+
+The last person, Emilio, didn't leave until almost 4:30. Alex fell asleep on the
+couch.
+
+---
+
+In the morning, Alex went into the laundry room to feed Daisy, and she was dead.
+Her body was no longer warm. Alex touched her bony joints with morbid
+fascination.
+
+He texted Hero that Daisy was dead. He wondered if the number would actually
+work. He barely understood how to use his phone, it was on loan from another
+friend of his host mother's.
+
+Hero responded almost immediately with an apology. Alex wrote that Daisy was
+very peaceful.
+
+Hero sent Alex an address, telling him that it was a vet that Alex could bring
+the body to.
+
+What a situation, thought Alex. He sent Paula an email.
+
+---
+
+A few hours later, Alex set off down Hero's driveway carrying a large luxury
+duffel bag containing Daisy's body. He had wrapped up the body in a garbage bag
+first, worried about the possiblity of the dog's bowels leaking.
+
+Carrying the bag was a pain, but Alex had not been able to find a good taxi
+service, and it was only about a mile to the MRT station. The feeling of the bad
+knocking up against Alex's thighs was still unpleasant. Alex thought about how
+all of the complexity that was Daisy was still in the bag, just now inert. It
+was weird, and quiet. It was New Year's Day. Alex was surprised by the scent of
+a Christmas tree, lying by the side of the road. It made him appreciate America.
+
+He was starting to think about hitchhiking when a blue, three-wheeled truck
+pulled over in front of him.
+
+"Where're you going?" the driver shouted out of the window, showing a mouth of
+reddened teeth.
+
+"Songshan MRT station," said Alex.
+
+"I'll take you!" said the driver.
+
+Leaving the engine running, he got out and helped Alex lift the duffel bag over
+the truck's tailgate.
+
+"Pretty heavy! What's in it?"
+
+"Gifts," said Alex, getting into the passenger seat. The cab of the truck was
+full of discarded styrofoam food packaging. He felt optimistic.
+
+"I was visiting family," continued Alex, as the driver pulled back onto the road
+rapidly.
+
+"Impressive!" said the driver. "Are you Christian?"
+
+"My family is Christian, myself, I'm not sure." Alex felt acutely aware of his
+body.
+
+They quickly arrived at Songshan station, an unusual MRT station nestled into
+the base of the mountain.
+
+"We're here!" said the driver, pulling up into the empty bus lane. He started to
+roll a cigarette. Alex got out of the car, looking up at the tracks to see if
+a train was coming.
+
+"One second!" said the driver around the cigarette, and then quickly closed the
+passenger door and stepped on the gas, the two-stroke engine of the small truck
+whining. Just before the truck whipped around the corner at the end of the
+block, Alex thought to look for a license plate, but there wasn't one. For a
+moment Alex wondered if the driver had simply forgotten about the large duffel
+bag in the back of his truck.
