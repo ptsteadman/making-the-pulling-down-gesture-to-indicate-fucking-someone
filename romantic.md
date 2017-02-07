@@ -1,8 +1,8 @@
-# Romantic
+# Making the Pulling Down Gesture to Indicate Fucking Someone
 
 Early in December, P.P. Hero invited Alex to a health club on the top floor of
 the Fuxing Sogo department store. Children were waiting impatiently in the
-lobby, each with a Christmas craft project made from paper and evergreen boughs.
+lobby, each holding a craft project made from paper and evergreen boughs.
 
 The pool was surprisingly large and cold. After a short swim, Alex joined Hero
 in the long, narrow steam room. It was empty except for two grey-haired men
@@ -28,13 +28,10 @@ but people will imagine."
 
 "I see," said Alex.
 
-They were silent for about ten minutes. Alex wondered how Hero had decided to
-become an architect, and tried not to think about what he'd study in college.
-
 ---
 
-Alex followed Hero out of the steam room, his skin suddenly clammy.  They
-entered a blue-tiled room of baths, some cold and some hot.
+Alex followed Hero out of the steam room, his skin suddenly clammy. They entered
+a blue-tiled room of baths, some cold and some hot.
 
 Hero grabbed a pot of gritty soap and a sponge and pointed to a vaulted chamber.
 He turned on a heavy flow of water with a faucet overhead.
@@ -42,12 +39,12 @@ He turned on a heavy flow of water with a faucet overhead.
 "Here, I'll give you a scrub. Very good for your skin."
 
 Alex stood, tense, under the lukewarm water as Hero scrubbed at his back and
-neck. This was just generally awkward.
+neck.
 
 Hero reached under Alex's swim trunks and grabbed his groin, his fingers
 touching Alex's balls. Alex didn't move or say anything, thinking of pushing
 Hero away, someone slipping. After about fifteen seconds Hero pulled his hand
-from under Alex's swim trunks and gave his legs a quick sponge.
+out and gave Alex's legs a quick sponge.
 
 "Now let's get in the cold water. Last step," said Hero.
 
@@ -60,7 +57,7 @@ correctly.
 "Fresh water. Hard to find freshwater pool, with no chlorine," said Hero, in
 English.  Alex always got a bit annoyed when Hero used English.
 
-"After getting dressed, let's get hamburgers, how about?" said Hero, in Mandarin
+"After getting dressed, let's get hamburgers, okay?" said Hero, in Mandarin
 again.
 
 "Absolutely," said Alex.
@@ -84,9 +81,13 @@ isolated home in the sulphuric hills north of Taipei would be perfect.
 Alex took the long MRT ride to the edge of the city, and then a cab.
 
 It wasn't Alex's first time at Hero's home. In August, Hero had held a reception
-for the all of the Rotary exchange students. In the living room, small groups of
-exchange students sat in small groups around portable hotpots, dipping squid,
-cabbage and tofu into the boiling red water.
+for the Rotary exchange students, where they sat in small groups in his living
+room, dipping squid, cabbage and tofu into portable hotpots.
+
+Alex said hello to Hero and his wife, and then went to put his stuff in the
+guest bedroom. He had stayed there before, after going out to dinner with Hero
+and his mother, often at hotels, for dinners that lasted hours because Hero and
+his host mother were patient teachers of Mandarin and loved to see movies after.
 
 Alex put his stuff in the large guest bedroom, and met Hero in the kitchen.
 
@@ -95,7 +96,7 @@ Alex put his stuff in the large guest bedroom, and met Hero in the kitchen.
 Hero shrugged. "DVD," he said.
 
 Alex had noticed all six seasons of "Megastructures" behind a glass case in his
-living room.
+room.
 
 "How many have you watched?"
 
@@ -132,6 +133,7 @@ too salty. The pot lay unwashed in the soapstone sink until he realized that
 Daisy would happily lick it clean.
 
 
+
 ---
 
 Alex often went to lunch with Hero and his host mother. Both were patient,
@@ -148,6 +150,8 @@ speak English, at all, unlike many of his other classmates.
 
 ---
 
+Caring about rooms and light, or having conversations about his interests.
+
 "There are issues with your lateness to school."
 
 They were eating at a French-themed restaurant. Alex told Hero that his lateness
@@ -162,6 +166,8 @@ students to Taiwan, looking like a sort of movie character with his designer
 glasses and suit.
 
 "How do you say 'respect' in Mandarin?" asked Alex.
+
+What is the character of "Alex"?
 
 ---
 
