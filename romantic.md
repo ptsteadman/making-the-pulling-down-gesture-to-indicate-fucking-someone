@@ -65,41 +65,39 @@ again.
 
 A few weeks later, Brent got lunch with his host mother and Hero at the Sheridan
 hotel. Hero had invited Brent to stay at his home during winter break, while he
-was working in Canada for a project. He needed someone to watch his dog, and
-Brent needed a quiet place to finish his college application essays.
+was travelling in Canada for a project. Hero needed someone to watch his dog,
+and Brent needed a quiet place to finish his college application essays.
 
 "You're learning a lot from Hero," said Brent's host mother, gesturing with a
 snail shell. "How to play chess, how to be a gentleman." She punched Hero's arm.
-They were old friends. Back in September, Brent's host mother had arranged the
-initial meeting between Hero and Brent, because Brent was in trouble for often
-being late to school.
+They were old friends.
 
-At their initial meeting at a French-themed restaurant, Brent felt annoyed with
-Hero's as he slurped French Onion soup and insisted that Brent must respect his
-teachers, regardless of his other interests. Brent was annoyed because he had
-hoped that Hero would be different: when Hero had spoken at the exchange student
-orientation, Brent had been struck by his mannerisms and appearance, looking
-like a movie character with his designer glasses and shirt.
+Back in September, Brent's host mother had arranged the initial meeting between
+Hero and Brent, because Brent was in trouble for often being late to school.
 
-But eventually Brent realized that Hero was right.
+When they met at a French-themed restaurant, Brent felt annoyed with Hero as he
+slurped French Onion soup and insisted that Brent must respect his teachers,
+regardless of his other interests. Brent was annoyed because he had hoped that
+Hero would be different: when Hero had spoken at the Rotary exchange student
+orientation, Brent had been drawn to his mannerisms and appearance, how he had
+looked like a movie character with his designer glasses and shirt.
 
 ---
 
 Brent took the long MRT ride to the edge of the city, and then walked up a road
-bordered by tufted grass and houses built into the hillside. It was drizzling.
+bordered by tufted grass. It was drizzling.
 
 It wasn't Brent's first time at Hero's home. In August, Hero had held a
-reception for the Rotary exchange students, where they sat in small groups in
-his living room, dipping squid, cabbage and tofu into portable hotpots.  Hero's
-home was like a jewelry case, but cool and wet, from the dark stone underlying
-the hills of Yangmingshan.
+reception for the exchange students, where they sat in small groups in his
+living room, dipping squid, cabbage and tofu into portable hotpots. On that
+night Hero's home was like a jewelry case, but cool and wet, smelling faintly of
+sulphur from the dark stone underlying the hills of Yangmingshan.
 
 Brent said hello to Hero and his wife, and then went to put his stuff in the
-guest bedroom. He had stayed there before after going out for dinner with Hero
-and his host mother.
+guest bedroom.
 
-"You have so many DVDs," said Brent, finding Hero in the kitchen. "How do you
-say 'DVD' in Mandarin?"
+"You have so many DVDs," said Brent, when he found Hero in the kitchen. "How do
+you say 'DVD' in Mandarin?"
 
 Hero shrugged. "DVD," he said.
 
