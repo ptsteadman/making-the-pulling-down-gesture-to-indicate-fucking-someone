@@ -134,16 +134,21 @@ Brent ate breakfast sitting beneath one of the pieces of calligraphy that Hero
 had helped him read and understand. The task of finishing his essays lay ahead
 of him.
 
-Brent tried to use some of Hero's fancy ingredients. The pasta ended up being
-too salty. The pot lay unwashed in the soapstone sink until he realized that
-Helsa would happily lick it clean.
+He procrastinated by sitting in the dark laundry room, petting Helsa.
+
+Brent tried to use some of Hero's fancy ingredients to make dinner. The pasta
+ended up being too salty. The pot lay unwashed in the soapstone sink until he
+realized that Helsa would happily lick it clean.
 
 ---
 
-Caring about rooms and light, or having conversations about his interests.
+The days leading up to the new year passed quickly. It was going to be 2010, the
+beginning of his decade. In 2020 he'd be twenty-seven. His character would be
+more or less set. He had ten years to become something and it was starting.
 
+He missed talking with Hero about rooms and light.
 
-What is the character of "Brent"?
+He was almost done with the essays. He'd turn them in late but it'd be ok.
 
 ---
 
@@ -151,8 +156,8 @@ What is the character of "Brent"?
 Brent sat in a leather chair under a lamp with a long metal neck. He felt
 accomplished.
 
-It was his decade. In 2020 he'd be 27. His character would be more or less set.
-He had ten years to become something and it was starting.
+Finally he got up, and joined in the dancing, forgetting himself like he had
+learned at the first dances in middle school.
 
 Brent could see fireworks shooting off Taipei 101, tiny grains of light at the
 distance.
