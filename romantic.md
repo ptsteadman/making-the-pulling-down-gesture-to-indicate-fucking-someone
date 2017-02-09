@@ -166,26 +166,27 @@ Brent paced back and forth, waiting for a response.
 Around ten PM, a large group of exchange students arrived at the front door.
 It was a much larger group than Brent had expected.
 
-Everyone was excited to have Hero's house, and they congratulated Alex.
+Everyone was excited to have Hero's house for the night, and they congratulated
+Alex.
 
 "It's because your Mandarin is so good," said Emilio.
 
-Alex had set out bottles of liquor in the living room, including yellowish
-bottle in which hornets were suspended. They all tried the hornet liquor, while
-two Brazilian engineering students figured out the soundsystem. Once they got
-the music working, the Brazilian girls started dancing.
+Alex had set out liquor in the living room, including a yellowish bottle in
+which hornets were suspended. They all tried the hornet liquor, while two
+Brazilian engineering students figured out the soundsystem. Once they got the
+music working, the girls started dancing.
 
 Brent sat in a leather chair under a lamp with a long metal neck. He felt
-accomplished. He could see fireworks shooting off Taipei 101, tiny grains of
-light at the distance.
+accomplished, watching everyone talking and dancing happily. He could see
+fireworks shooting off Taipei 101, tiny grains of light at the distance.
 
 Finally he got up, and joined the dancing, forgetting himself like he had
 learned at social nights in middle school.
 
-Late at night they ended up in a windowless room in the basement where the floor
-was covered with Tatami mats and cushions, listening to reggaeton.  Brent sat up
-against the wall talking with a girl from Columbia, watching Emilio and Hivera
-give the two Brazilian girls back rubs. This went on for a long time. The
+After midnight they ended up in a windowless room in the basement where the
+floor was covered with Tatami mats and cushions, listening to reggaeton.  Brent
+sat up against the wall talking with a girl from Columbia, watching Emilio and
+Hivera give the two Brazilian girls back rubs. This went on for a long time. The
 orgiastic intensity, without any sex, made Alex uncomfortable. He was reminded
 of teaching some family friends how to masturbate back when he was eleven,
 across the inky darkness of a boathouse bedroom in Muskoka, Canada.
