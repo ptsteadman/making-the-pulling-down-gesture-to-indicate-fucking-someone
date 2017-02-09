@@ -2,22 +2,22 @@
 
 Early in December, P.P. Hero invited Brent to a health club on the top floor of
 the Fuxing Sogo department store. Children were waiting impatiently in the
-lobby, each holding a craft project made from paper and evergreen boughs.
+lobby, each with a craft project made from paper and evergreen boughs.
 
 The pool was surprisingly large and cold. After a short swim, Brent joined Hero
-in the long, narrow steam room, empty except for two grey-haired men speaking in
+in the long, narrow steam room, empty except for two grey-haired men speaking
 German.
 
 Brent sat down next to Hero. He had a wet towel over his eyes.
 
-"What do you feel about this building?" asked Hero.
+"How do you feel about this building?" asked Hero.
 
 "I feel it's strange," said Brent, in Mandarin. "I feel far away from my home."
 
 Hero removed the towel from his face and wiped a circle on the tall window
 between them, revealing the overcast sky outside.
 
-"I worked on this building in the early nineties. When you were a boy."
+"I worked on this building in the early nineties."
 
 "Wow."
 
@@ -54,12 +54,12 @@ Brent thought about cultural differences, wondering if he was interpreting the
 moment correctly.
 
 "Fresh water. Hard to find freshwater pool, with no chlorine," said Hero, in
-English. Brent always got a bit annoyed when Hero used English.
+English. Brent was always sort of annoyed when Hero used English.
 
 "After getting dressed, let's get hamburgers, okay?" said Hero, in Mandarin
 again.
 
-"Absolutely," said Brent.
+"Sounds good," said Brent.
 
 ---
 
@@ -73,14 +73,14 @@ snail shell. "How to play chess, how to be a gentleman." She punched Hero's arm.
 They were old friends.
 
 Back in September, Brent's host mother had arranged the initial meeting between
-Hero and Brent, because Brent was in trouble for often being late to school.
+Hero and Brent. Brent was in trouble for often being late to school.
 
-When they met at a French-themed restaurant, Brent felt annoyed with Hero as he
-slurped French Onion soup and insisted that Brent must respect his teachers,
-regardless of his other interests. Brent was annoyed because he had hoped that
-Hero would be different: when Hero had spoken at the Rotary exchange student
-orientation, Brent had been drawn to his mannerisms and appearance, how he had
-looked like a movie character with his designer glasses and shirt.
+At first Brent was annoyed with Hero, as he slurped French Onion soup and
+insisted that Brent must respect his teachers, regardless of his other
+interests. Brent was annoyed because he had hoped that Hero would be different.
+When Hero had spoken at the Rotary exchange student orientation, something about
+to his mannerisms and appearance gave Brent chills, how he had looked like a
+movie character with his designer glasses and shirt.
 
 ---
 
@@ -106,8 +106,7 @@ room.
 
 "How many have you watched?"
 
-"Most," said Hero, smiling and opening his fridge. "I make time to relax and
-learn."
+"Most," said Hero, opening his fridge. "I make time to relax and learn."
 
 Hero studied the inside of the fridge, his expressive face clearly indicating
 that he'd forgotten what he was looking for.
@@ -126,9 +125,8 @@ besides the dog's bed and let the dog eat the taro out of his hand.
 
 ---
 
-It was a refreshing, almost magical experience waking up in Hero's home. The
-winter sun had warmed the wooden floors of the guest bedroom, inviting Brent to
-get out of bed.
+Waking up in Hero's home was refreshing. The winter sun had warmed the wooden
+floors of the guest bedroom, inviting Brent to get out of bed.
 
 Brent ate breakfast sitting beneath one of the pieces of calligraphy that Hero
 had helped him read and understand. The task of finishing his essays lay ahead
@@ -136,21 +134,21 @@ of him.
 
 He procrastinated by sitting in the dark laundry room, petting Helsa.
 
-Brent tried to use some of Hero's fancy ingredients to make dinner. The pasta
-ended up being too salty. The pot lay unwashed in the soapstone sink until he
-realized that Helsa would happily lick it clean.
+When it got dark, Brent tried to use some of Hero's fancy ingredients to make
+dinner. The pasta ended up being too salty. The pot lay unwashed in the
+soapstone sink until he realized that Helsa would happily lick it clean.
 
 ---
 
-The days leading up to the new year passed quickly. It was going to be 2010, the
-beginning of his decade. In 2020 he'd be twenty-seven. His character would be
+The days leading up to the new year passed quickly. It was almost 2010, the
+beginning of his decade. In 2020 he'd be twenty-seven, his character would be
 more or less set.
+
+He was almost done with the essays. He'd turn them in late but it'd be ok.
 
 He watched documentaries about important construction projects in Taiwan's past,
 including the tunnel project where x people died. He missed talking with Hero
 about rooms and light.
-
-He was almost done with the essays. He'd turn them in late but it'd be ok.
 
 ---
 
@@ -171,14 +169,13 @@ Alex.
 
 "It's because your Mandarin is so good," said Emilio.
 
-Alex had set out liquor in the living room, including a yellowish bottle in
-which hornets were suspended. They all tried the hornet liquor, while two
-Brazilian engineering students figured out the soundsystem. Once they got the
-music working, the girls started dancing.
+Liquor was set out in the living room. They tried a yellowish bottle in which
+hornets were suspended, while two Brazilian engineering students figured out the
+soundsystem. Once they got the music working, the girls started dancing.
 
 Brent sat in a leather chair under a lamp with a long metal neck. He felt
 accomplished, watching everyone talking and dancing happily. He could see
-fireworks shooting off Taipei 101, tiny grains of light at the distance.
+fireworks shooting off Taipei 101, tiny grains of light in the distance.
 
 Finally he got up, and joined the dancing, forgetting himself like he had
 learned at social nights in middle school.
@@ -186,16 +183,18 @@ learned at social nights in middle school.
 After midnight they ended up in a windowless room in the basement where the
 floor was covered with Tatami mats and cushions, listening to reggaeton.  Brent
 sat up against the wall talking with a girl from Columbia, watching Emilio and
-Hivera give the two Brazilian girls back rubs. This went on for a long time. The
+Joshua give the two Brazilian girls back rubs. This went on for a long time. The
 orgiastic intensity, without any sex, made Alex uncomfortable. He was reminded
 of teaching some family friends how to masturbate back when he was eleven,
-across the inky darkness of a boathouse bedroom in Muskoka, Canada.
+across the inky darkness of a room above a boathouse in Muskoka, Canada.
 
 ---
 
 In the morning, Brent went into the laundry room to feed Helsa, feeling hungover
-and happy. He had just watched the other exchange students walk down the road
-towards the MRT station in the mist.
+and happy after watching the other exchange students walk down the road towards
+the MRT station in the mist.
+
+"Oh shit," he said.
 
 Helsa was dead. Brent touched her bony joints with morbid fascination. Her
 body was no longer warm.
@@ -206,8 +205,7 @@ it was on loan from another friend of his host mother's.
 Hero responded almost immediately with an apology, and then an address, telling
 him that it was a vet where Brent could bring the body.
 
-What a situation, thought Brent. Maybe he would re-write his college application
-essay about it.
+What a situation, thought Brent.
 
 ---
 
@@ -216,9 +214,10 @@ bag containing Helsa's body. He had wrapped up the body in a garbage bag first,
 worried about the possiblity of the dog's bowels leaking.
 
 It was only about a mile to the MRT station, but Alex realized it was going to
-be a struggle to make it there, with the bag knocking up against his thighs.  It
-was New Year's Day. Brent was surprised by the scent of a Christmas tree, lying
-by the side of the road.
+be a struggle to make it there, with the bag knocking up against his thighs.
+
+Brent was surprised by the scent of a Christmas tree, lying by the side of the
+road.
 
 He was starting to think about hitchhiking when a blue, three-wheeled truck
 pulled over in front of him.
@@ -236,10 +235,11 @@ bag over the truck's tailgate.
 "Pretty heavy! What's in it?"
 
 "Gifts," said Brent, getting into the passenger seat. The cab of the truck was
-full of discarded styrofoam packaging. Brent suddenly felt optimistic.
+full of discarded styrofoam packaging. Brent suddenly felt optimistic, like he'd
+get his essays done easily.
 
-"I was visiting family," continued Brent, as the driver pulled back onto the road
-rapidly.
+"I was visiting family," continued Brent, as the driver rapidly pulled back onto
+the road.
 
 "Impressive!" said the driver. "Are you Christian?"
 
@@ -251,9 +251,13 @@ They quickly arrived at Songshan station, nestled into the base of the mountain.
 roll a cigarette. Brent got out of the car, looking up at the tracks to see if a
 train was coming.
 
-"One second," said the driver, and then quickly closed the passenger door and
-stepped on the gas, the two-stroke engine of the small truck whining.
+"One second," said the driver around the cigarette, and then quickly closed the
+passenger door and stepped on the gas, the two-stroke engine of the small truck
+whining.
 
 Just before the truck turned around the corner, Brent thought to look for a
-license plate. There wasn't one. For a moment Brent wondered if the driver had
-simply forgotten about the large duffel bag in the back of his truck.
+license plate. There wasn't one.
+
+For a moment Brent wondered if the driver had simply forgotten about the large
+duffel bag in the back of his truck. He heard the quiet rush of an approaching
+train overhead.
