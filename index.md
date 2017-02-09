@@ -2,7 +2,7 @@
 
 Early in December, P.P. Hero invited Brent to a health club on the top floor of
 the Fuxing Sogo department store. Children were waiting impatiently in the
-lobby, each with a craft project made from paper and evergreen boughs.
+lobby, each holding a craft project made from paper and evergreen boughs.
 
 The pool was surprisingly large and cold. After a short swim, Brent joined Hero
 in the long, narrow steam room, empty except for two grey-haired men speaking
