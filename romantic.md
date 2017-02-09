@@ -144,48 +144,52 @@ realized that Helsa would happily lick it clean.
 
 The days leading up to the new year passed quickly. It was going to be 2010, the
 beginning of his decade. In 2020 he'd be twenty-seven. His character would be
-more or less set. He had ten years to become something and it was starting.
+more or less set.
 
-He missed talking with Hero about rooms and light.
+He watched documentaries about important construction projects in Taiwan's past,
+including the tunnel project where x people died. He missed talking with Hero
+about rooms and light.
 
 He was almost done with the essays. He'd turn them in late but it'd be ok.
 
 ---
 
+At six PM on New Year's Eve Brent stopped working on his essays, and messaged
+Emilio, an exchange student from Mexico.
 
 Brent sat in a leather chair under a lamp with a long metal neck. He felt
-accomplished.
+accomplished. He could see fireworks shooting off Taipei 101,
+tiny grains of light at the distance.
 
-Finally he got up, and joined in the dancing, forgetting himself like he had
-learned at the first dances in middle school.
+Finally he got up, and joined the dancing, forgetting himself like he had
+learned at social nights in middle school.
 
-Brent could see fireworks shooting off Taipei 101, tiny grains of light at the
-distance.
-
-They ended up in a windowless room in the basement where the floor was covered
-with Tatami mats, listening to reggaeton. The smell of sulphur was stronger
-here. Brent set up against the wall talking with a girl from Columbia, watching
-Emilio and Hivera give the two Brazilian girls back rubs. This went on for a
-long time. The orgiastic intensity, without any sex, made Alex uncomfortable. He
-was reminded of teaching some family friends how to masturbate back when he was
-eleven, across the inky darkness of a boathouse bedroom in Muskoka, Canada.
+Late at night they ended up in a windowless room in the basement where the floor
+was covered with Tatami mats, listening to reggaeton. The smell of sulphur was
+stronger here. Brent set up against the wall talking with a girl from Columbia,
+watching Emilio and Hivera give the two Brazilian girls back rubs. This went on
+for a long time. The orgiastic intensity, without any sex, made Alex
+uncomfortable. He was reminded of teaching some family friends how to masturbate
+back when he was eleven, across the inky darkness of a boathouse bedroom in
+Muskoka, Canada.
 
 ---
 
 In the morning, Brent went into the laundry room to feed Helsa, hungover and
-happy. Helsa was dead. Brent touched her bony joints with morbid fascination. Her
+happy. He had just watched the other exchange students walk down the road
+towards the MRT station in the mist.
+
+Helsa was dead. Brent touched her bony joints with morbid fascination. Her
 body was no longer warm.
 
 He texted Hero that Helsa was dead. Brent barely understood how to use his phone,
 it was on loan from another friend of his host mother's.
 
-Hero responded almost immediately with an apology. Brent wrote that Helsa was
-very peaceful.
+Hero responded almost immediately with an apology, and then an address, telling
+him that it was a vet where Brent could bring the body.
 
-Hero sent Brent an address, telling him that it was a vet that Brent could bring
-the body to.
-
-What a situation, thought Brent. He sent Paula an email.
+What a situation, thought Brent. Maybe he would re-write his college application
+essay about it.
 
 ---
 
@@ -193,11 +197,10 @@ A few hours later, Brent set off down Hero's driveway carrying a luxury duffel
 bag containing Helsa's body. He had wrapped up the body in a garbage bag first,
 worried about the possiblity of the dog's bowels leaking.
 
-It was only about a mile to the MRT station. The feeling of the bag knocking up
-against Brent's thighs was still unpleasant.
-
-It was New Year's Day. Brent was surprised by the scent of a Christmas tree,
-lying by the side of the road.
+It was only about a mile to the MRT station, but Alex realized it was going to
+be a struggle to make it there, with the bag knocking up against his thighs.  It
+was New Year's Day. Brent was surprised by the scent of a Christmas tree, lying
+by the side of the road.
 
 He was starting to think about hitchhiking when a blue, three-wheeled truck
 pulled over in front of him.
