@@ -165,7 +165,7 @@ Around ten PM, a large group of exchange students arrived at the front door.
 It was a much larger group than Brent had expected.
 
 Everyone was excited to have Hero's house for the night, and they congratulated
-Alex.
+Brent.
 
 "It's because your Mandarin is so good," said Emilio.
 
@@ -184,7 +184,7 @@ After midnight they ended up in a windowless room in the basement where the
 floor was covered with Tatami mats and cushions, listening to reggaeton.  Brent
 sat up against the wall talking with a girl from Columbia, watching Emilio and
 Joshua give the two Brazilian girls back rubs. This went on for a long time. The
-orgiastic intensity, without any sex, made Alex uncomfortable. He was reminded
+orgiastic intensity, without any sex, made Brent uncomfortable. He was reminded
 of teaching some family friends how to masturbate back when he was eleven,
 across the inky darkness of a room above a boathouse in Muskoka, Canada.
 
@@ -213,7 +213,7 @@ A few hours later, Brent set off down Hero's driveway carrying a luxury duffel
 bag containing Helsa's body. He had wrapped up the body in a garbage bag first,
 worried about the possiblity of the dog's bowels leaking.
 
-It was only about a mile to the MRT station, but Alex realized it was going to
+It was only about a mile to the MRT station, but Brent realized it was going to
 be a struggle to make it there, with the bag knocking up against his thighs.
 
 Brent was surprised by the scent of a Christmas tree, lying by the side of the
