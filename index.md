@@ -37,6 +37,21 @@ besides the dog's bed and let the dog eat the taro out of his hand.
 
 ---
 
+"Your host mother asked me to meet with you," said Hero. Brent and Hero were
+eating at a French-themed restaurant in...
+
+Back in September, Brent's host mother had arranged the initial meeting between
+Hero and Brent. Brent was in trouble for often being late to school.
+
+At first Brent was annoyed with Hero, as he slurped French Onion soup and
+insisted that Brent must respect his teachers, regardless of his other
+interests. Brent was annoyed because he had hoped that Hero would be different.
+When Hero had spoken at the Rotary exchange student orientation, something about
+to his mannerisms and appearance gave Brent chills, how he had looked like a
+movie character with his designer glasses and shirt.
+
+---
+
 Early in December, P.P. Hero invited Brent to a health club on the top floor of
 the Fuxing Sogo department store. Children were waiting impatiently in the
 lobby, each holding a craft project made from paper and evergreen boughs.
@@ -109,15 +124,6 @@ and Brent needed a quiet place to finish his college application essays.
 snail shell. "How to play chess, how to be a gentleman." She punched Hero's arm.
 They were old friends.
 
-Back in September, Brent's host mother had arranged the initial meeting between
-Hero and Brent. Brent was in trouble for often being late to school.
-
-At first Brent was annoyed with Hero, as he slurped French Onion soup and
-insisted that Brent must respect his teachers, regardless of his other
-interests. Brent was annoyed because he had hoped that Hero would be different.
-When Hero had spoken at the Rotary exchange student orientation, something about
-to his mannerisms and appearance gave Brent chills, how he had looked like a
-movie character with his designer glasses and shirt.
 
 ---
 
