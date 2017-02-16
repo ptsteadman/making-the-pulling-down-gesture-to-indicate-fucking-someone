@@ -1,5 +1,42 @@
 # making the pulling down gesture to indicate fucking someone
 
+The other exchange students didn't seem to appreciate P.P. Hero's collection of
+educational DVDs, which filled a glass case rising up to the second story of his
+living room. Brent walked around the room's perimeter, staring thoughtfully at
+the titles on the well-organized cases, hoping that Hero or one of the other
+Rotary members would appear and talk with him.
+
+Brent was sick the exchange students, who had all arrived in Taipei about a week
+ago. They sat in small groups around hot pots, dipping squid, cabbage and tofu
+in the the boiling red water, making exaggerated conversation.
+
+"You have so many DVDs," said Brent, when he found P.P. Hero in the kitchen,
+where most of the other Rotarians were standing around.  "How do you say 'DVD'
+in Mandarin?"
+
+Hero shrugged. "DVD," he said.
+
+"How many have you watched?"
+
+"Most," said Hero, opening his fridge. "I make time to relax and learn."
+
+Hero studied the inside of the fridge, his expressive face clearly indicating
+that he'd forgotten what he was looking for.
+
+"Ah, so," he said, selecting a taro root. He cut it up on the jet black counter
+and then swept the slices into his hand.
+
+"I'll introduce you to my dog," said Hero.
+
+Brent followed Hero into a dark room adjacent to the kitchen, the laundry room.
+
+"Here she is. Helsa."
+
+A yellow lab wagged its tail quietly at Hero and Brent. Hero kneeled on a pillow
+besides the dog's bed and let the dog eat the taro out of his hand.
+
+---
+
 Early in December, P.P. Hero invited Brent to a health club on the top floor of
 the Fuxing Sogo department store. Children were waiting impatiently in the
 lobby, each holding a craft project made from paper and evergreen boughs.
@@ -87,42 +124,6 @@ movie character with his designer glasses and shirt.
 Brent took the long MRT ride to the edge of the city, and then walked up a road
 bordered by tufted grass. It was drizzling.
 
-It wasn't Brent's first time at Hero's home. In August, Hero had held a
-reception for the exchange students, where they sat in small groups in his
-living room, dipping squid, cabbage and tofu into portable hotpots. On that
-night Hero's home was like a jewelry case, but cool and wet, smelling faintly of
-sulphur from the dark stone underlying the hills of Yangmingshan.
-
-Brent said hello to Hero and his wife, and then went to put his stuff in the
-guest bedroom.
-
-"You have so many DVDs," said Brent, when he found Hero in the kitchen. "How do
-you say 'DVD' in Mandarin?"
-
-Hero shrugged. "DVD," he said.
-
-Brent had noticed all six seasons of "Megastructures" behind a glass case in his
-room.
-
-"How many have you watched?"
-
-"Most," said Hero, opening his fridge. "I make time to relax and learn."
-
-Hero studied the inside of the fridge, his expressive face clearly indicating
-that he'd forgotten what he was looking for.
-
-"Ah, so," he said, selecting a taro root. He cut it up on the jet black counter
-and then swept the slices into his hand.
-
-"I'll show you how to feed Helsa," said Hero.
-
-Brent followed Hero into a dark room adjacent to the kitchen.
-
-"Here she is."
-
-A yellow lab wagged its tail quietly at Hero and Brent. Hero kneeled on a pillow
-besides the dog's bed and let the dog eat the taro out of his hand.
-
 ---
 
 Waking up in Hero's home was refreshing. The winter sun had warmed the wooden
@@ -147,8 +148,9 @@ more or less set.
 He was almost done with the essays. He'd turn them in late but it'd be ok.
 
 He watched documentaries about important construction projects in Taiwan's past,
-including the tunnel project where x people died. He missed talking with Hero
-about rooms and light.
+including the Xueshan tunnel project where twenty-five people died over the
+course of fifteen years of construction. He missed talking with Hero about rooms
+and light.
 
 ---
 
@@ -258,6 +260,4 @@ whining.
 Just before the truck turned around the corner, Brent thought to look for a
 license plate. There wasn't one.
 
-For a moment Brent wondered if the driver had simply forgotten about the large
-duffel bag in the back of his truck. He heard the quiet rush of an approaching
-train overhead.
+He heard the quiet rush of an approaching train overhead.
