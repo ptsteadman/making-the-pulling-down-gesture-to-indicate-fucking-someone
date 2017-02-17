@@ -6,9 +6,9 @@ living room. Brent walked around the room's perimeter, staring thoughtfully at
 the titles on the well-organized cases, hoping that Hero or one of the other
 Rotary members would appear and talk with him.
 
-Brent was sick the exchange students, who had all arrived in Taipei about a week
-ago. They sat in small groups around hot pots, dipping squid, cabbage and tofu
-in the the boiling red water, making exaggerated conversation.
+Brent was sick of the exchange students. They sat in small groups around hot
+pots, dipping squid, cabbage and tofu in the the boiling red water, making
+exaggerated conversation.
 
 "You have so many DVDs," said Brent, when he found P.P. Hero in the kitchen,
 where most of the other Rotarians were standing around.  "How do you say 'DVD'
