@@ -1,18 +1,16 @@
 # making the pulling down gesture to indicate fucking someone
 
-The other exchange students didn't seem to appreciate P.P. Hero's collection of
-educational DVDs, which filled a glass case rising up to the second story of his
-living room. Brent walked around the room's perimeter, staring thoughtfully at
-the titles on the well-organized cases, hoping that Hero or one of the other
-Rotary members would appear and talk with him.
+The other exchange students didn't seem to appreciate P.P. Hero's large
+collection of educational DVDs, rising up on shelves behind his living room
+staircase. Brent made his way up the stairs, looking thoughtfully at the titles
+on the jewel cases, hoping that Hero would appear and talk with him.
 
-Brent was sick of the exchange students. They sat in small groups around hot
-pots, dipping squid, cabbage and tofu in the the boiling red water, making
-exaggerated conversation.
+The other exchange students sat in small groups around hot pots below, dipping
+squid, cabbage and tofu in the the boiling red water, making exaggerated
+conversation.
 
-"You have so many DVDs," said Brent, when he found P.P. Hero in the kitchen,
-where most of the other Rotarians were standing around.  "How do you say 'DVD'
-in Mandarin?"
+"You have so many DVDs," said Brent, when he found P.P. Hero in the kitchen.
+"How do you say 'DVD' in Mandarin?"
 
 Hero shrugged. "DVD," he said.
 
