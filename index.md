@@ -81,8 +81,8 @@ English. "They are wide enough to walk across."
 
 ---
 
-Brent followed Hero out of the steam room, his skin suddenly clammy. They
-entered a blue-tiled room of baths, some cold and some hot.
+Brent followed Hero out of the steam room. They entered a blue-tiled room of
+baths, some cold and some hot.
 
 Hero grabbed a pot of gritty soap and a sponge and pointed to a vaulted chamber.
 He turned on a heavy flow of water with a faucet overhead.
@@ -124,26 +124,24 @@ and Brent needed a quiet place to finish his college application essays.
 snail shell. "How to play chess, how to be a gentleman." She punched Hero's arm.
 They were old friends.
 
-
 ---
 
-Brent took the long MRT ride to the edge of the city, and then walked up a road
-bordered by tufted grass. It was drizzling.
+Brent took the long Metro Rapid Transit ride to the edge of the city, and then
+walked up a winding road bordered by tufted grass. It was drizzling.
 
----
-
-Waking up in Hero's home was refreshing. The winter sun had warmed the wooden
-floors of the guest bedroom, inviting Brent to get out of bed.
+It was refreshing to wake up in Hero's home. The winter sun had warmed the
+wooden floors of the guest bedroom, inviting Brent to get out of bed.
 
 Brent ate breakfast sitting beneath one of the pieces of calligraphy that Hero
-had helped him read and understand. The task of finishing his essays lay ahead
-of him.
+had helped him read and understand.
 
 He procrastinated by sitting in the dark laundry room, petting Helsa.
 
 When it got dark, Brent tried to use some of Hero's fancy ingredients to make
 dinner. The pasta ended up being too salty. The pot lay unwashed in the
 soapstone sink until he realized that Helsa would happily lick it clean.
+
+auntie
 
 ---
 
@@ -155,8 +153,7 @@ He was almost done with the essays. He'd turn them in late but it'd be ok.
 
 He watched documentaries about important construction projects in Taiwan's past,
 including the Xueshan tunnel project where twenty-five people died over the
-course of fifteen years of construction. He missed talking with Hero about rooms
-and light.
+course of fifteen years of construction.
 
 ---
 
