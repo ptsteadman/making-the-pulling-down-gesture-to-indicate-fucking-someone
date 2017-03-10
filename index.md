@@ -1,16 +1,21 @@
 # making the pulling down gesture to indicate fucking someone
 
-The other exchange students didn't seem to appreciate P.P. Hero's large
-collection of educational DVDs, rising up on shelves behind his living room
+The other exchange students didn't seem to appreciate P.P. Hero's collection of
+educational DVDs, displayed on shelves rising two stories behind his living room
 staircase. Brent made his way up the stairs, looking thoughtfully at the titles
 on the jewel cases, hoping that Hero would appear and talk with him.
 
 The other exchange students sat in small groups around hot pots below, dipping
 squid, cabbage and tofu in the the boiling red water, making exaggerated
-conversation.
+conversation. The living room was filled with the light of a blazing August
+sunset, reflecting off the windows of Taipei.
 
-"You have so many DVDs," said Brent, when he found P.P. Hero in the kitchen.
-"How do you say 'DVD' in Mandarin?"
+Brent's eyes ached as they adjusted to the dark landing leading into the
+kitchen. He nodded and smiled at different Rotary members that he vaguely
+remembered.
+
+"You have so many DVDs," said Brent, when he found Hero in the kitchen.  "How do
+you say 'DVD' in Mandarin?"
 
 Hero shrugged. "DVD," he said.
 
@@ -26,7 +31,7 @@ and then swept the slices into his hand.
 
 "I'll introduce you to my dog," said Hero.
 
-Brent followed Hero into a dark room adjacent to the kitchen, the laundry room.
+Brent followed Hero into a dark room adjacent to the kitchen.
 
 "Here she is. Helsa."
 
@@ -36,23 +41,41 @@ besides the dog's bed and let the dog eat the taro out of his hand.
 ---
 
 "Your host mother asked me to meet with you," said Hero. Brent and Hero were
-eating at a French-themed restaurant in...
+eating at a French-themed restaurant in the quiet area south of Zhongxiao East
+Road.
 
-Back in September, Brent's host mother had arranged the initial meeting between
-Hero and Brent. Brent was in trouble for often being late to school.
+"Thank you for taking me out to dinner," said Brent. Hero nodded.
 
-At first Brent was annoyed with Hero, as he slurped French Onion soup and
-insisted that Brent must respect his teachers, regardless of his other
-interests. Brent was annoyed because he had hoped that Hero would be different.
-When Hero had spoken at the Rotary exchange student orientation, something about
-to his mannerisms and appearance gave Brent chills, how he had looked like a
-movie character with his designer glasses and shirt.
+"There are issues with your lateness to school," said Hero, slurping his French
+Onion soup.
+
+Brent felt annoyed with Hero. He wanted Hero to be different. At the exchange
+student orientation, Hero had spoken with gravity, looking like a movie
+character with his thick glasses and weird structured shirt.
+
+Brent explained that he needed to write his college application essays, that he
+was going to apply for a special scholarship.
+
+"Nevertheless, your teachers and fellow students feel disrespected," said Hero.
+
+"I'm sorry about that," said Brent, "but those essays are important."
+
+Hero looked at Brent thoughtfully as the waiter poured a glass of wine. It was
+late in the evening.
+
+"You are being very foolish, I think," said Hero finally. "Why are you here?"
+
+Brent was suddenly very aware of his body, staring at Hero's wine glass.
+
+"I want to learn Mandarin," said Brent. He repeated himself in Mandarin.
+
+"I'll help you," said Hero.
 
 ---
 
-Early in December, P.P. Hero invited Brent to a health club on the top floor of
-the Fuxing Sogo department store. Children were waiting impatiently in the
-lobby, each holding a craft project made from paper and evergreen boughs.
+Early in December, Hero invited Brent to a health club on the top floor of the
+Fuxing Sogo department store. Children were running around the lobby, each
+holding a craft project made from card stock and evergreen boughs.
 
 The pool was surprisingly large and cold. After a short swim, Brent joined Hero
 in the long, narrow steam room, empty except for two grey-haired men speaking
@@ -62,18 +85,18 @@ Brent sat down next to Hero. He had a wet towel over his eyes.
 
 "How do you feel about this building?" asked Hero.
 
-"I feel it's strange," said Brent, in Mandarin. "I feel far away from my home."
+"I feel it's strange," said Brent, in Mandarin. "I feel far away."
 
 Hero removed the towel from his face and wiped a circle on the tall window
-between them, revealing the overcast sky outside.
+between them, revealing the grey sky outside.
 
 "I worked on this building in the early nineties."
 
 "Wow."
 
-Hero pointed out a sub-roof, far above the dense streets below. "I designed the
-horizontal beams over that gap, twelve stories high," said Hero, switching to
-English. "They are wide enough to walk across."
+Hero pointed out a sub-roof, still far above the dense streets below. "I
+designed the horizontal beams over that gap, twelve stories high," said Hero,
+switching to English. "They are wide enough to walk across."
 
 "I see," said Brent.
 
@@ -104,9 +127,9 @@ Brent thought about cultural differences, wondering if he was interpreting the
 moment correctly.
 
 "Fresh water. Hard to find freshwater pool, with no chlorine," said Hero, in
-English. Brent was always sort of annoyed when Hero used English.
+English.
 
-"After getting dressed, let's get hamburgers, okay?" said Hero, in Mandarin
+"After getting dressed, let's get hamburgers, okay?" continued Hero, in Mandarin
 again.
 
 "Sounds good," said Brent.
@@ -118,9 +141,9 @@ hotel. Hero had invited Brent to stay at his home during winter break, while he
 was travelling in Canada for a project. Hero needed someone to watch his dog,
 and Brent needed a quiet place to finish his college application essays.
 
-"You're learning a lot from Hero," said Brent's host mother, gesturing with a
-snail shell. "How to play chess, how to be a gentleman." She punched Hero's arm.
-They were old friends.
+"You're learning a lot from Past President Hero," said Brent's host mother,
+gesturing with a snail shell. "How to play chess, how to be a gentleman." She
+punched Hero's arm.  They were old friends.
 
 ---
 
@@ -147,11 +170,9 @@ The days leading up to the new year passed quickly. It was almost 2010, the
 beginning of his decade. In 2020 he'd be twenty-seven, his character would be
 more or less set.
 
-He was almost done with the essays. He'd turn them in late but it'd be ok.
-
-He watched documentaries about important construction projects in Taiwan's past,
-including the Xueshan tunnel project where twenty-five people died over the
-course of fifteen years of construction.
+He watched educational films about important construction projects in Taiwan's
+past, including the Xueshan tunnel project where twenty-five people died over
+the course of fifteen years of construction.
 
 ---
 
@@ -174,28 +195,24 @@ Brent.
 
 Liquor was set out in the living room. They tried a yellowish bottle in which
 hornets were suspended, while two Brazilian engineering students figured out the
-soundsystem. Once they got the music working, the girls started dancing.
+sound system. Once they got the music working, the girls started dancing.
 
 Brent sat in a leather chair under a lamp with a long metal neck. He felt
 accomplished, watching everyone talking and dancing happily. He could see
 fireworks shooting off Taipei 101, tiny grains of light in the distance.
 
-Finally he got up, and joined the dancing, forgetting himself like he had
-learned at social nights in middle school.
-
 After midnight they ended up in a windowless room in the basement where the
 floor was covered with Tatami mats and cushions, listening to reggaeton.  Brent
 sat up against the wall talking with a girl from Columbia, watching Emilio and
 Joshua give the two Brazilian girls back rubs. This went on for a long time. The
-orgiastic intensity, without any sex, made Brent uncomfortable. He was reminded
-of teaching some family friends how to masturbate back when he was eleven,
-across the inky darkness of a room above a boathouse in Muskoka, Canada.
+orgiastic intensity made Brent uncomfortable. He was reminded of teaching some
+family friends how to masturbate back when he was eleven, across the inky
+darkness of a room above a boathouse in Muskoka, Canada.
 
 ---
 
-In the morning, Brent went into the laundry room to feed Helsa, feeling hungover
-and happy after watching the other exchange students walk down the road towards
-the MRT station in the mist.
+In the morning, Brent went into the laundry room to feed Helsa. he other
+exchange students walk down the road towards the MRT station in the mist.
 
 "Oh shit," he said.
 
@@ -214,7 +231,7 @@ What a situation, thought Brent.
 
 A few hours later, Brent set off down Hero's driveway carrying a luxury duffel
 bag containing Helsa's body. He had wrapped up the body in a garbage bag first,
-worried about the possiblity of the dog's bowels leaking.
+worried about the possibility of the dog's bowels leaking.
 
 It was only about a mile to the MRT station, but Brent realized it was going to
 be a struggle to make it there, with the bag knocking up against his thighs.
