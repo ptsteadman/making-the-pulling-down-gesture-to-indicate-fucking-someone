@@ -1,21 +1,16 @@
 # making the pulling down gesture to indicate fucking someone
 
 The other exchange students didn't seem to appreciate P.P. Hero's collection of
-educational DVDs, displayed on shelves rising two stories behind his living room
-staircase. Brent made his way up the stairs, looking thoughtfully at the titles
-on the jewel cases, hoping that Hero would appear and talk with him.
+educational DVDs, displayed on shelves rising behind his living room staircase.
+Brent made his way up the stairs, looking thoughtfully at the titles on the
+jewel cases.
 
-The other exchange students sat in small groups around hot pots below, dipping
-squid, cabbage and tofu in the the boiling red water, making exaggerated
-conversation. The living room was filled with the light of a blazing August
-sunset, reflecting off the windows of Taipei.
+Brent's eyes ached as they adjusted to the comparative darkness of the kitchen
+landing at the top of the stairs.  He nodded and smiled at different Rotary
+members that he vaguely remembered.
 
-Brent's eyes ached as they adjusted to the dark landing leading into the
-kitchen. He nodded and smiled at different Rotary members that he vaguely
-remembered.
-
-"You have so many DVDs," said Brent, when he found Hero in the kitchen.  "How do
-you say 'DVD' in Mandarin?"
+"You have so many DVDs," said Brent, when he found Hero near the refrigerator.
+"How do you say 'DVD' in Mandarin?"
 
 Hero shrugged. "DVD," he said.
 
@@ -41,8 +36,7 @@ besides the dog's bed and let the dog eat the taro out of his hand.
 ---
 
 "Your host mother asked me to meet with you," said Hero. Brent and Hero were
-eating at a French-themed restaurant in the quiet area south of Zhongxiao East
-Road.
+eating at a French-themed restaurant in the quiet area south of Zhongxiao East.
 
 "Thank you for taking me out to dinner," said Brent. Hero nodded.
 
@@ -136,14 +130,14 @@ again.
 
 ---
 
-A few weeks later, Brent got lunch with his host mother and Hero at the Sheridan
-hotel. Hero had invited Brent to stay at his home during winter break, while he
-was travelling in Canada for a project. Hero needed someone to watch his dog,
-and Brent needed a quiet place to finish his college application essays.
-
 "You're learning a lot from Past President Hero," said Brent's host mother,
 gesturing with a snail shell. "How to play chess, how to be a gentleman." She
 punched Hero's arm.  They were old friends.
+
+They were eating at the Sheridan hotel.  Hero had invited Brent to stay at his
+home during winter break, while he was travelling in Canada for a project. Hero
+needed someone to watch his dog, and Brent needed a quiet place to finish his
+college application essays.
 
 ---
 
