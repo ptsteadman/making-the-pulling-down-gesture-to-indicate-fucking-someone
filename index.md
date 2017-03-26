@@ -231,12 +231,12 @@ What a situation, thought Brent.
 
 ---
 
-A few hours later, Brent set off down Hero's driveway carrying a luxury duffel
-bag containing Helsa's body. He had wrapped up the body in a garbage bag first,
-worried about the possibility of the dog's bowels leaking.
+A few hours later, Brent set off down Hero's driveway with a luxury duffel bag
+containing Helsa's body knocking up against his thighs. He had wrapped up the
+body in a garbage bag, worried that the dog's bowel's might leak.
 
 It was only about a mile to the MRT station, but Brent realized it was going to
-be a struggle to make it there with the bag knocking up against his thighs.
+be a struggle.
 
 He was starting to think about hitchhiking when a blue, three-wheeled truck
 pulled over next to him.
@@ -253,18 +253,19 @@ bag over the truck's tailgate.
 
 "Pretty heavy! What's in it?"
 
-"Gifts," said Brent, getting into the passenger seat. The cab of the truck was
-full of discarded styrofoam packaging. Brent suddenly felt optimistic, like he'd
-get his essays done easily.
+"Gifts," said Brent, pushing a few items off of the passenger seat and sitting
+down. He suddenly felt optimistic.
 
-"I was visiting family," continued Brent, as the driver rapidly pulled back onto
-the road.
+"I was visiting family," continued Brent, as the driver pulled back onto the
+road.
 
 "Impressive!" said the driver. "Are you Christian?"
 
 "My family is Christian, myself, I'm not sure."
 
-They quickly arrived at Songshan station, nestled into the base of the mountain.
+It felt good to be going fast. Brent was surprised by the smell of Christmas
+trees, lying by the side of the road. They quickly arrived at the base of the
+hills. Songshan station rose above the quiet commercial streets.
 
 "We're here!" said the driver, pulling into the empty bus lane. He started to
 roll a cigarette. Brent got out of the car, looking up to see if a train was
@@ -273,7 +274,8 @@ coming.
 "One second," said the driver around the cigarette, and then quickly closed the
 passenger door and stepped on the gas, the two-stroke engine whining.
 
-Just before the truck turned around the corner, Brent thought to look for a
-license plate. There wasn't one.
+Brent took a few quick steps, waving at the truck. He looked for a license plate
+but there wasn't one.
 
-He heard the quiet rush of an approaching train overhead.
+The truck turned around the corner at the end of the block. Brent heard the
+quiet rush of an approaching train overhead.
