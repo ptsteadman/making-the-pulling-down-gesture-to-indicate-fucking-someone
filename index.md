@@ -190,11 +190,6 @@ Brent paced back and forth, waiting for a response. He was worried that the :
 Around ten PM, a large group of exchange students arrived at the front door.
 It was a much larger group than Brent had expected.
 
-Everyone was excited to have Hero's house for the night, and they congratulated
-Brent.
-
-"It's because your Mandarin is so good," said Emilio.
-
 Liquor was set out in the living room. They tried a yellowish bottle in which
 hornets were suspended, while two Brazilian engineering students figured out the
 sound system. Once they got the music working, the girls started dancing.
@@ -213,19 +208,19 @@ darkness of a room above a boathouse in Muskoka, Canada.
 
 ---
 
-In the morning, Brent went into the laundry room to feed Helsa. he other
-exchange students walk down the road towards the MRT station in the mist.
+In the morning, Brent went into the laundry room to feed Helsa. The other
+exchange studnets had left a few hours earlier, walking towrads the MRT station
+in the mist.
 
-"Oh shit," he said.
+"Oh shit," he said, touching Helsa.
 
-Helsa was dead. Brent touched her bony joints with morbid fascination. Her
-body was no longer warm.
+Helsa was dead.
 
-He texted Hero that Helsa was dead. Brent barely understood how to use his phone,
-it was on loan from another friend of his host mother's.
+Brent touched her cold, bony joints with morbid fascination.
 
-Hero responded almost immediately with an apology, and then an address, telling
-him that it was a vet where Brent could bring the body.
+He texted Hero. Brent barely understood how to use his burner phone, but Hero
+repsonded almost immediately with an apology and an address, the address of
+veternarian where Brent could bring the body for disposal.
 
 What a situation, thought Brent.
 
