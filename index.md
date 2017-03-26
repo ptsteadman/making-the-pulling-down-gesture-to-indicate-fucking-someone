@@ -5,9 +5,9 @@ educational DVDs, displayed on shelves rising behind his living room staircase.
 Brent made his way up the stairs, looking thoughtfully at the titles on the
 jewel cases.
 
-Brent's eyes ached as they adjusted to the comparative darkness of the kitchen
-landing at the top of the stairs.  He nodded and smiled at different Rotary
-members that he vaguely remembered.
+The exchange students sat in small groups in the living room below, dipping
+squid, cabbage and prawns into portable hot pots. At the top of the stairs Brent
+turned into the kitchen, his eyes aching in the comparative darkness.
 
 "You have so many DVDs," said Brent, when he found Hero near the refrigerator.
 "How do you say 'DVD' in Mandarin?"
@@ -18,8 +18,8 @@ Hero shrugged. "DVD," he said.
 
 "Most," said Hero, opening his fridge. "I make time to relax and learn."
 
-Hero studied the inside of the fridge, his expressive face clearly indicating
-that he'd forgotten what he was looking for.
+Hero studied the inside of the fridge, his expressive face clearly showing that
+he'd forgotten what he was looking for.
 
 "Ah, so," he said, selecting a taro root. He cut it up on the jet black counter
 and then swept the slices into his hand.
@@ -38,24 +38,23 @@ besides the dog's bed and let the dog eat the taro out of his hand.
 "Your host mother asked me to meet with you," said Hero. Brent and Hero were
 eating at a French-themed restaurant in the quiet area south of Zhongxiao East.
 
-"Thank you for taking me out to dinner," said Brent. Hero nodded.
+"Thanks for taking me out to dinner," said Brent. Hero nodded.
 
 "There are issues with your lateness to school," said Hero, slurping his French
 Onion soup.
 
-Brent felt annoyed with Hero. He wanted Hero to be different. At the exchange
+Brent felt annoyed because he wanted Hero to be different. At the exchange
 student orientation, Hero had spoken with gravity, looking like a movie
 character with his thick glasses and weird structured shirt.
 
-Brent explained that he needed to write his college application essays, that he
+Brent said that he needed to write his college application essays, that he
 was going to apply for a special scholarship.
 
 "Nevertheless, your teachers and fellow students feel disrespected," said Hero.
 
 "I'm sorry about that," said Brent, "but those essays are important."
 
-Hero looked at Brent thoughtfully as the waiter poured a glass of wine. It was
-late in the evening.
+Hero looked at Brent thoughtfully as the waiter poured a glass of wine.
 
 "You are being very foolish, I think," said Hero finally. "Why are you here?"
 
@@ -175,7 +174,7 @@ exchange student from Mexico, to invite him to hang out at Hero's house. Brent
 told him it'd be a good place to watch the fireworks, situated above the city,
 and that he should invite the Brazilians.
 
-Brent paced back and forth, waiting for a response.
+Brent paced back and forth, waiting for a response. He was worried that the :
 
 ---
 
@@ -228,15 +227,12 @@ bag containing Helsa's body. He had wrapped up the body in a garbage bag first,
 worried about the possibility of the dog's bowels leaking.
 
 It was only about a mile to the MRT station, but Brent realized it was going to
-be a struggle to make it there, with the bag knocking up against his thighs.
-
-Brent was surprised by the scent of a Christmas tree, lying by the side of the
-road.
+be a struggle to make it there with the bag knocking up against his thighs.
 
 He was starting to think about hitchhiking when a blue, three-wheeled truck
-pulled over in front of him.
+pulled over next to him.
 
-"Where're you going?" the driver shouted out of the window, showing a mouth of
+"Where're you going?" the driver shouted out the window, showing a mouth of
 reddened teeth.
 
 "Songshan MRT station," said Brent.
@@ -262,12 +258,11 @@ the road.
 They quickly arrived at Songshan station, nestled into the base of the mountain.
 
 "We're here!" said the driver, pulling into the empty bus lane. He started to
-roll a cigarette. Brent got out of the car, looking up at the tracks to see if a
-train was coming.
+roll a cigarette. Brent got out of the car, looking up to see if a train was
+coming.
 
 "One second," said the driver around the cigarette, and then quickly closed the
-passenger door and stepped on the gas, the two-stroke engine of the small truck
-whining.
+passenger door and stepped on the gas, the two-stroke engine whining.
 
 Just before the truck turned around the corner, Brent thought to look for a
 license plate. There wasn't one.
