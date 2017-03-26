@@ -1,13 +1,22 @@
 # making the pulling down gesture to indicate fucking someone
 
 The other exchange students didn't seem to appreciate P.P. Hero's collection of
-educational DVDs, displayed on shelves rising behind his living room staircase.
-Brent made his way up the stairs, looking thoughtfully at the titles on the
-jewel cases.
+educational DVDs, displayed on many-layered shelves rising behind his living
+room staircase.  Brent made his way up the stairs, looking thoughtfully at the
+titles on the jewel cases, hoping that Hero would appear and talk with him.
 
+The other exchange students were making exaggerated conversation around portable
+hot pots below, dipping squid, tofu, and cabbage into the boiling water.
+
+<<<<<<< HEAD
 The exchange students sat in small groups in the living room below, dipping
 squid, cabbage and prawns into portable hot pots. At the top of the stairs Brent
 turned into the kitchen, his eyes aching in the comparative darkness.
+=======
+Brent's eyes ached as they adjusted to the comparative darkness of the kitchen
+landing at the top of the stairs.  He nodded and smiled at serious-looking
+Rotary club members that he vaguely remembered.
+>>>>>>> 4a1f79fba037fd2b0a6ffafdcd1808333a20a636
 
 "You have so many DVDs," said Brent, when he found Hero near the refrigerator.
 "How do you say 'DVD' in Mandarin?"
@@ -52,7 +61,7 @@ was going to apply for a special scholarship.
 
 "Nevertheless, your teachers and fellow students feel disrespected," said Hero.
 
-"I'm sorry about that," said Brent, "but those essays are important."
+"I'm sorry about that," said Brent.
 
 Hero looked at Brent thoughtfully as the waiter poured a glass of wine.
 
