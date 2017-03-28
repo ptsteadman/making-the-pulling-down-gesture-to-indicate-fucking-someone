@@ -1,27 +1,20 @@
 # making the pulling down gesture to indicate fucking someone
 
-The other exchange students didn't seem to appreciate P.P. Hero's collection of
-educational DVDs, displayed on many-layered shelves rising behind his living
+The other exchange students didn't seem to appreciate P.P. Hero's large
+collection of educational DVDs, displayed on shelves rising behind his living
 room staircase.  Brent made his way up the stairs, looking thoughtfully at the
 titles on the jewel cases, hoping that Hero would appear and talk with him.
+Below, the other exchange students were making exaggerated conversation around
+portable hot pots, dipping squid, tofu, and cabbage into the boiling water.
 
-The other exchange students were making exaggerated conversation around portable
-hot pots below, dipping squid, tofu, and cabbage into the boiling water.
+At the top of the stairs Brent entered the kitchen, nodding at a group of
+Rotarians that he recognized from orientation. Hero was standing by the
+refrigerator.
 
-<<<<<<< HEAD
-The exchange students sat in small groups in the living room below, dipping
-squid, cabbage and prawns into portable hot pots. At the top of the stairs Brent
-turned into the kitchen, his eyes aching in the comparative darkness.
-=======
-Brent's eyes ached as they adjusted to the comparative darkness of the kitchen
-landing at the top of the stairs.  He nodded and smiled at serious-looking
-Rotary club members that he vaguely remembered.
->>>>>>> 4a1f79fba037fd2b0a6ffafdcd1808333a20a636
+"You have so many DVDs," said Brent, walking up to Hero.  "How do you say 'DVD'
+in Mandarin?"
 
-"You have so many DVDs," said Brent, when he found Hero near the refrigerator.
-"How do you say 'DVD' in Mandarin?"
-
-Hero shrugged. "DVD," he said.
+Hero looked over at him and shrugged. "DVD," he said.
 
 "How many have you watched?"
 
@@ -47,25 +40,24 @@ besides the dog's bed and let the dog eat the taro out of his hand.
 "Your host mother asked me to meet with you," said Hero. Brent and Hero were
 eating at a French-themed restaurant in the quiet area south of Zhongxiao East.
 
-"Thanks for taking me out to dinner," said Brent. Hero nodded.
-
-"There are issues with your lateness to school," said Hero, slurping his French
-Onion soup.
+"There are issues with your lateness to school," said Hero. He looked away from
+Brent to slurp his French Onion soup.
 
 Brent felt annoyed because he wanted Hero to be different. At the exchange
 student orientation, Hero had spoken with gravity, looking like a movie
 character with his thick glasses and weird structured shirt.
 
-Brent said that he needed to write his college application essays, that he
+Brent explained that he needed to write his college application essays, that he
 was going to apply for a special scholarship.
 
 "Nevertheless, your teachers and fellow students feel disrespected," said Hero.
 
 "I'm sorry about that," said Brent.
 
-Hero looked at Brent thoughtfully as the waiter poured a glass of wine.
+Hero looked at Brent thoughtfully as the waiter poured him a glass of wine.
 
-"You are being very foolish, I think," said Hero finally. "Why are you here?"
+"You are being very foolish, I think," said Hero finally. "Why are you here? In
+Taiwan?"
 
 Brent was suddenly very aware of his body, staring at Hero's wine glass.
 
@@ -96,9 +88,9 @@ between them, revealing the grey sky outside.
 
 "Wow."
 
-Hero pointed out a sub-roof, still far above the dense streets below. "I
-designed the horizontal beams over that gap, twelve stories high," said Hero,
-switching to English. "They are wide enough to walk across."
+Hero pointed out a sub-roof, still far above the streets below. "I designed the
+horizontal beams over that gap, twelve stories high," said Hero, switching to
+English. "They are wide enough to walk across."
 
 "I see," said Brent.
 
@@ -145,15 +137,15 @@ punched Hero's arm.  They were old friends.
 They were eating at the Sheridan hotel.  Hero had invited Brent to stay at his
 home during winter break, while he was travelling in Canada for a project. Hero
 needed someone to watch his dog, and Brent needed a quiet place to finish his
-college application essays.
+college applications.
 
 ---
 
-Brent took the long Metro Rapid Transit ride to the edge of the city, and then
-walked up a winding road bordered by tufted grass. It was drizzling.
+Brent took the long MRT ride to the edge of the city, and then walked up a
+winding road bordered by tufted grass. It was drizzling.
 
-It was refreshing to wake up in Hero's home. The winter sun had warmed the
-wooden floors of the guest bedroom, inviting Brent to get out of bed.
+It was refreshing to wake up in Hero's home. The winter sun warmed the wooden
+floors of the guest bedroom, inviting Brent to get out of bed.
 
 Brent ate breakfast sitting beneath one of the pieces of calligraphy that Hero
 had helped him read and understand.
