@@ -159,8 +159,6 @@ When it got dark, Brent tried to use some of Hero's fancy ingredients to make
 dinner. The pasta ended up being too salty. The pot lay unwashed in the
 soapstone sink until he realized that Helsa would happily lick it clean.
 
-auntie
-
 ---
 
 The days leading up to the new year passed quickly. It was almost 2010, the
@@ -179,6 +177,11 @@ told him it'd be a good place to watch the fireworks, situated above the city,
 and that he should invite the Brazilians.
 
 Brent paced back and forth, waiting for a response.
+
+It was a long trip from the hookah bars where the Brazilians liked to hang out
+to the quit hills of Yangmingshan, and Brent was afraid that the Brazilians
+would rather try to go to a club. Being alone on the New Years leading into the
+new decade would affect his self-esteem.
 
 ---
 
