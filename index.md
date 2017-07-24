@@ -2,17 +2,18 @@
 
 The other exchange students didn't seem to appreciate P.P. Hero's large
 collection of educational DVDs, displayed on shelves rising behind his living
-room staircase. Brent made his way up the stairs, looking thoughtfully at the
-titles on the jewel cases, hoping that Hero would appear and talk with him.
-Below, the other exchange students were making exaggerated conversation around
-portable hot pots, dipping squid, tofu, and cabbage into boiling water.
+room staircase. Brent made his way up the warm, carpeted steps, looking
+thoughtfully at the titles on the jewel cases. He hoped that Hero would appear
+and talk with him. Below, the other exchange students were making exaggerated
+conversation around portable hot pots, dipping squid, tofu, and cabbage into
+boiling water.
 
-At the top of the stairs Brent entered the kitchen, nodding at a group of
-Rotarians that he recognized from last week's orientation. Hero was standing by
-the refrigerator.
+At the top of the stairs Brent entered the kitchen, nodding politely at a group
+of older Rotarians. The smell of sulphur that pervaded the hills of Yamingshan
+above Taipei was stronger here, perhaps because the kitchen seemed to be dug
+into the hillside. Hero was standing by the refrigerator.
 
-"You have so many DVDs," said Brent, leaning over the kitchen counter.  "How do
-you say 'DVD' in Mandarin?"
+"You have so many DVDs," said Brent. "How do you say 'DVD' in Mandarin?"
 
 Hero looked over at him and shrugged. "DVD," he said.
 
