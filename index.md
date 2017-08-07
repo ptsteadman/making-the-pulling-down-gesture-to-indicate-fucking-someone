@@ -2,16 +2,15 @@
 
 The other exchange students didn't seem to appreciate P.P. Hero's large
 collection of educational DVDs, displayed on shelves rising behind his living
-room staircase. Brent made his way up the warm, carpeted steps, looking
-thoughtfully at the titles on the jewel cases. He hoped that Hero would appear
-and talk with him. Below, the other exchange students were making exaggerated
-conversation around portable hot pots, dipping squid, tofu, and cabbage into
-boiling water.
+room staircase. Brent made his way up the sun-warmed, carpeted steps, looking
+thoughtfully at the titles on the jewel cases. He hoped that Hero would appear.
+Below, the exchange students were making exaggerated conversation around
+portable hot pots, dipping squid and cabbage into the boiling red water.
 
 At the top of the stairs Brent entered the kitchen, nodding politely at a group
-of older Rotarians. The smell of sulphur that pervaded the hills of Yamingshan
-above Taipei was stronger here, perhaps because the kitchen seemed to be dug
-into the hillside. Hero was standing by the refrigerator.
+of older Rotarians.
+
+Hero was washing a knife at the sink.
 
 "You have so many DVDs," said Brent. "How do you say 'DVD' in Mandarin?"
 
@@ -29,12 +28,12 @@ and then swept the slices into his hand.
 
 "I'll introduce you to my dog," said Hero.
 
-Brent followed Hero into a dark room adjacent to the kitchen.
+Brent followed Hero into a dark laundry room adjacent to the kitchen.
 
 "Here she is. Helsa."
 
 A yellow lab wagged its tail quietly at Hero and Brent. Hero kneeled on a pillow
-besides the dog's bed and let the dog eat the taro out of his hand.
+besides the dog's bed and let her eat the taro out of his hand.
 
 ---
 
@@ -45,9 +44,7 @@ Road.
 "There are issues with your lateness to school," said Hero. He lowered his head
 to slurp his French Onion soup.
 
-Brent wanted Hero to be different from the other Rotarians. At the orientation,
-Hero had spoken with gravity, looking like a movie character with his thick
-glasses and weird structured shirt.
+Brent wanted Hero to be different from the other Rotarians.
 
 Brent explained that he was staying up late writing his college application
 essays, that he was going to apply for a special scholarship. That's why he was
@@ -70,9 +67,16 @@ Brent was suddenly very aware of his body, ashamed, staring at Hero's wine glass
 
 ---
 
+JSTOR
+On one awkwardly bright and early Sunday morning Brent
+Torrenting
+Awkward bright
+
+---
+
 Early in December, Hero invited Brent to a health club on the top floor of the
-aquamarine Fuxing Sogo department store. Children were running around the lobby,
-holding disintegrating craft projects made of evergreen boughs and pasta.
+aquamarine Fuxing Sogo department store. Children were running around the
+lobby, holding craft projects made of evergreen boughs and pasta.
 
 The pool was surprisingly large and cold. After a short swim, Brent joined Hero
 in the long, narrow steam room, empty except for two grey-haired men speaking
@@ -155,6 +159,8 @@ It was refreshing to wake up in Hero's home. The winter sun warmed the wooden
 floors of the guest bedroom, and Brent got out of bed with a sense of purpose
 and well-being.
 
+external hard drive
+
 Brent ate breakfast sitting beneath one of the pieces of calligraphy that Hero
 had helped him read and understand.
 
@@ -195,6 +201,8 @@ It was a much larger group than Brent had expected.
 
 Brent brought out a bottle of yellowish liquor in which hornets were suspended,
 while two Brazilian engineering students figured out the sound system.
+
+making the pulling down gesture to indicate fucking someone
 
 Brent sat in a leather chair under a lamp with a long metal neck. He felt
 accomplished, watching everyone talking and dancing happily. He could see
