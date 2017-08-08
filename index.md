@@ -1,14 +1,14 @@
 # making the pulling down gesture to indicate fucking someone
 
-The other exchange students didn't seem to appreciate P.P. Hero's large
-collection of educational DVDs, displayed on shelves rising behind his living
-room staircase. Brent made his way up the sun-warmed, carpeted steps, looking
-thoughtfully at the titles on the jewel cases. He hoped that Hero would appear.
-Below, the exchange students were making exaggerated conversation around
-portable hot pots, dipping squid and cabbage into the boiling red water.
+The other exchange students didn't appreciate P.P. Hero's large collection of
+educational DVDs, displayed on shelves rising behind his living room staircase.
+Brent made his way up the warm, carpeted steps, looking at the titles on the
+jewel cases. He was trying to look thoughtful. Below, the other exchange
+students were making exaggerated conversation around boiling red hot pots with
+squid and cabbage.
 
 At the top of the stairs Brent entered the kitchen, nodding politely at a group
-of older Rotarians.
+of older Rotarians standing uncomfortably in a beam of late afternoon sunlight.
 
 Hero was washing a knife at the sink.
 
@@ -20,8 +20,8 @@ Hero looked over at him and shrugged. "DVD," he said.
 
 "Most," said Hero, opening his fridge. "I make time to relax and learn."
 
-Hero studied the inside of the fridge, his expressive face clearly showing that
-he'd forgotten what he was looking for.
+Hero studied the inside of the fridge, his face clearly showing that he'd
+forgotten what he was looking for.
 
 "Ah, so," he said, selecting a taro root. He cut it up on the jet black counter
 and then swept the slices into his hand.
@@ -32,17 +32,17 @@ Brent followed Hero into a dark laundry room adjacent to the kitchen.
 
 "Here she is. Helsa."
 
-A yellow lab wagged its tail quietly at Hero and Brent. Hero kneeled on a pillow
-besides the dog's bed and let her eat the taro out of his hand.
+A yellow lab wagged its tail quietly. Hero knelt down on a pillow besides the dog's
+bed and let her eat the taro out of his hand.
 
 ---
 
-"Your host mother asked me to meet with you," said Hero. Brent and Hero were
-eating at a French-themed restaurant in the quiet area south of Zhongxiao East
-Road.
+"Your host mother asked me to meet with you," said Hero, a few weeks later.
+Brent and Hero were eating at a French-themed restaurant on a quiet street south
+of Zhongxiao East Road.
 
 "There are issues with your lateness to school," said Hero. He lowered his head
-to slurp his French Onion soup.
+and slurped his French Onion soup.
 
 Brent wanted Hero to be different from the other Rotarians.
 
@@ -50,7 +50,7 @@ Brent explained that he was staying up late writing his college application
 essays, that he was going to apply for a special scholarship. That's why he was
 late.
 
-"Still, your teachers and fellow students feel disrespected," said Hero.
+"Stillll, your teachers and fellow students feel disrespected," said Hero.
 
 "I'm sorry about that," said Brent.
 
@@ -67,10 +67,23 @@ Brent was suddenly very aware of his body, ashamed, staring at Hero's wine glass
 
 ---
 
-JSTOR
-On one awkwardly bright and early Sunday morning Brent
+The tall blonde girl with the acne couldn't believe that Brent was a virgin. It
+smelled like sulhpur and was raining. P.P. Power was leading a hiking trip
+through the Yangmingshan hills. The softness of Brent's face after the sulphur
+bath promised new, better skin.
+
+The hike terminated at Hero's house.
+
+Always with the smell of sulphur. I look forward to my skincare routine.  Brent
+felt in Hero the desire to express something that wasn't part of the list of his
+life, JSTOR
 Torrenting
-Awkward bright
+
+Brent watched as Hero .
+
+"And you can start and stop the download whenever?"
+
+"Yes."
 
 ---
 
@@ -159,12 +172,8 @@ It was refreshing to wake up in Hero's home. The winter sun warmed the wooden
 floors of the guest bedroom, and Brent got out of bed with a sense of purpose
 and well-being.
 
-external hard drive
-
-Brent ate breakfast sitting beneath one of the pieces of calligraphy that Hero
-had helped him read and understand.
-
-He procrastinated by sitting in the dark laundry room, petting Helsa.
+The only time when he went to the city was to go to the area around Taipei main
+station to buy an external hard drive.
 
 When it got dark, Brent tried to use some of Hero's fancy ingredients to make
 dinner. The pasta ended up being too salty. The pot lay unwashed in the
@@ -187,12 +196,10 @@ exchange student from Mexico, to invite him to hang out at Hero's house. Brent
 told him it'd be a good place to watch the fireworks, situated above the city,
 and that he should invite the Brazilians.
 
-Brent paced back and forth, waiting for a response. He was worried that the :
-
-It was a long trip from the hookah bars where the Brazilians liked to hang out
-to the quit hills of Yangmingshan, and Brent was afraid that the Brazilians
-would rather try to go to a club. Being alone on the New Years leading into the
-new decade would affect his self-esteem.
+Brent paced back and forth, waiting for a response. He was worried that just two
+or three people would come and be disappointed. It was a long trip from the
+hookah bars to Yangmingshan, and Brent was afraid that the Brazilians would
+ather try to go to a club. Brent needed this to go well.
 
 ---
 
