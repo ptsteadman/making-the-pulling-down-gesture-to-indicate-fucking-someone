@@ -85,6 +85,8 @@ Brent watched as Hero .
 
 "Yes."
 
+For the first time, Brent understood wealth.
+
 ---
 
 Early in December, Hero invited Brent to a health club on the top floor of the
