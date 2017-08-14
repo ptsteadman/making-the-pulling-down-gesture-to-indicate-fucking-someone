@@ -8,7 +8,9 @@ students were making exaggerated conversation around boiling red hot pots with
 squid and cabbage.
 
 At the top of the stairs Brent entered the kitchen, nodding politely at a group
-of older Rotarians standing uncomfortably in a beam of late afternoon sunlight.
+of older Rotarians. They were smiling broadly at each other, standing just
+aside from a fierce beam of sunlight slicing in cinematically from the
+living room.
 
 Hero was washing a knife at the sink.
 
@@ -20,7 +22,7 @@ Hero looked over at him and shrugged. "DVD," he said.
 
 "Most," said Hero, opening his fridge. "I make time to relax and learn."
 
-Hero studied the inside of the fridge, his face clearly showing that he'd
+Hero studied the inside of the fridge, his expressive face showing that he'd
 forgotten what he was looking for.
 
 "Ah, so," he said, selecting a taro root. He cut it up on the jet black counter
@@ -84,8 +86,6 @@ Brent watched as Hero .
 "And you can start and stop the download whenever?"
 
 "Yes."
-
-For the first time, Brent understood wealth.
 
 ---
 
