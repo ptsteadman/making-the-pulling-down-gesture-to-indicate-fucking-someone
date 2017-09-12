@@ -1,16 +1,15 @@
 # making the pulling down gesture to indicate fucking someone
 
-The other exchange students didn't appreciate P.P. Hero's large collection of
-educational DVDs, displayed on shelves rising behind his living room staircase.
-Brent made his way up the warm, carpeted steps, looking at the titles on the
-jewel cases. He was trying to look thoughtful. Below, the other exchange
-students were making exaggerated conversation around boiling red hot pots with
-squid and cabbage.
+The other exchange students didn't seem to appreciate P.P. Hero's large
+collection of educational DVDs, displayed on shelves rising behind his living
+room staircase.  Brent made his way up the warm, carpeted steps, looking at the
+titles on the jewel cases. He was trying to look thoughtful. Below, the other
+exchange students were making exaggerated conversation around boiling hot pots
+full of squid and cabbage.
 
-At the top of the stairs Brent entered the kitchen, nodding politely at a group
-of older Rotarians. They were smiling broadly at each other, standing just
-aside from a fierce beam of sunlight slicing in cinematically from the
-living room.
+At the top of the stairs, Brent entered the kitchen, nodding politely at a
+group of older Rotarians. They were smiling broadly at each other, standing
+just aside from a fierce beam of sunlight slicing in from the living room.
 
 Hero was washing a knife at the sink.
 
@@ -52,7 +51,7 @@ Brent explained that he was staying up late writing his college application
 essays, that he was going to apply for a special scholarship. That's why he was
 late.
 
-"Stillll, your teachers and fellow students feel disrespected," said Hero.
+"Still, your teachers and fellow students feel disrespected," said Hero.
 
 "I'm sorry about that," said Brent.
 
@@ -73,8 +72,6 @@ The tall blonde girl with the acne couldn't believe that Brent was a virgin. It
 smelled like sulhpur and was raining. P.P. Power was leading a hiking trip
 through the Yangmingshan hills. The softness of Brent's face after the sulphur
 bath promised new, better skin.
-
-The hike terminated at Hero's house.
 
 Always with the smell of sulphur. I look forward to my skincare routine.  Brent
 felt in Hero the desire to express something that wasn't part of the list of his
@@ -110,9 +107,9 @@ revealing the grey sky outside.
 
 "Wow."
 
-Hero pointed out a sub-roof, still far above the streets below. "I designed the
-horizontal beams over that gap, twelve stories high," said Hero, switching to
-English. "They are wide enough to walk across."
+Hero pointed out a sub-roof, still far above the narrow streets below.  "I
+designed the horizontal beams over that gap, twelve stories high," said Hero,
+switching to English. "They are wide enough to walk across."
 
 "I see," said Brent.
 
@@ -160,7 +157,7 @@ Hero and Brent's host mother often brought Brent out to lunch and dinner. Brent
 was learning to enjoy these long meals at hotel restaurants. He had suddenly
 realized that
 
-They were discussing Brent staying at Hero's home during winter break to watch
+They were planning Brent staying at Hero's home during winter break to watch
 his dog, while Hero was travelling in Canada for a project. Hero needed someone
 to watch his dog, and Brent needed a quiet place to finish his college
 applications.
@@ -174,8 +171,8 @@ It was refreshing to wake up in Hero's home. The winter sun warmed the wooden
 floors of the guest bedroom, and Brent got out of bed with a sense of purpose
 and well-being.
 
-The only time when he went to the city was to go to the area around Taipei main
-station to buy an external hard drive.
+The only time he left was to go to the area around Taipei main station to buy
+an external hard drive.
 
 When it got dark, Brent tried to use some of Hero's fancy ingredients to make
 dinner. The pasta ended up being too salty. The pot lay unwashed in the
@@ -208,7 +205,7 @@ ather try to go to a club. Brent needed this to go well.
 Around ten PM, a large group of exchange students arrived at the front door.
 It was a much larger group than Brent had expected.
 
-Brent brought out a bottle of yellowish liquor in which hornets were suspended,
+Brent brought out a bottle of yellowish liquor with hornets suspended in it,
 while two Brazilian engineering students figured out the sound system.
 
 making the pulling down gesture to indicate fucking someone
@@ -237,7 +234,7 @@ Helsa was dead.
 
 Brent touched her cold, bony joints with morbid fascination.
 
-He texted Hero. Brent barely understood how to use his flip phone, but Hero
+He texted Hero, struggling to use the flip phone Hero had given him. Hero
 repsonded almost immediately with an apology and an address, the address of
 veternarian where Brent could bring Helsa's body for disposal.
 
@@ -246,11 +243,11 @@ What a situation, thought Brent.
 ---
 
 A few hours later, Brent set off down Hero's driveway with a luxury duffel bag
-containing Helsa's body knocking up against his thighs. He had wrapped up the
-body in a garbage bag, worried that the dog's bowel's might leak.
+containing Helsa's body. He had wrapped up the body in a garbage bag, worried
+that the dog's bowel's might leak.
 
 It was only about a mile to the MRT station, but Brent realized it was going to
-be a struggle.
+be a struggle. The bag was heavy against his thigh and chafed his knees.
 
 He was starting to think about hitchhiking when a blue, three-wheeled truck
 pulled over next to him.
@@ -279,7 +276,7 @@ road.
 
 It felt good to be going fast. Brent was surprised by the smell of Christmas
 trees, lying by the side of the road. They quickly arrived at the base of the
-hills. Songshan station rose above the quiet commercial streets.
+hill. Songshan station rose above the quiet commercial streets.
 
 "We're here!" said the driver, pulling into the empty bus lane. He started to
 roll a cigarette. Brent got out of the car, looking up to see if a train was
