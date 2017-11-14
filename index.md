@@ -2,14 +2,14 @@
 
 The other exchange students didn't seem to appreciate P.P. Hero's large
 collection of educational DVDs, displayed on shelves rising behind his living
-room staircase.  Brent made his way up the warm, carpeted steps, looking at the
-titles on the jewel cases. He was trying to look thoughtful. Below, the other
-exchange students were making exaggerated conversation around boiling hot pots
-full of squid and cabbage.
+room staircase.  Brent made his way up the warm, carpeted steps, trying appear
+thoughtful as he read the titles on the jewel cases. Below, the other exchange
+students were making exaggerated conversation around boiling hot pots full of
+squid and cabbage.
 
-At the top of the stairs, Brent entered the kitchen, nodding politely at a
-group of older Rotarians. They were smiling broadly at each other, standing
-just aside from a fierce beam of sunlight slicing in from the living room.
+At the top of the stairs, Brent entered the kitchen, nodding politely at a group
+of older Rotarians. They were smiling broadly at each other, standing just aside
+from a fierce beam of sunlight.
 
 Hero was washing a knife at the sink.
 
@@ -33,7 +33,7 @@ Brent followed Hero into a dark laundry room adjacent to the kitchen.
 
 "Here she is. Helsa."
 
-A yellow lab wagged its tail quietly. Hero knelt down on a pillow besides the dog's
+A yellow lab wagged her tail quietly. Hero knelt down on a pillow besides the dog's
 bed and let her eat the taro out of his hand.
 
 ---
@@ -45,7 +45,9 @@ of Zhongxiao East Road.
 "There are issues with your lateness to school," said Hero. He lowered his head
 and slurped his French Onion soup.
 
-Brent wanted Hero to be different from the other Rotarians.
+Brent wanted Hero to be different from the other Rotarians. He had wanted this
+since the orientation, when Hero's speech had sent a shiver down his spine. It
+had spoken to his expectations for life.
 
 Brent explained that he was staying up late writing his college application
 essays, that he was going to apply for a special scholarship. That's why he was
@@ -87,14 +89,14 @@ Brent watched as Hero .
 ---
 
 Early in December, Hero invited Brent to a health club on the top floor of the
-aquamarine Fuxing Sogo department store. Children were running around the
-lobby, holding craft projects made of evergreen boughs and pasta.
+Fuxing Sogo department store. Children were running around the lobby, holding
+craft projects made of evergreen boughs and pasta.
 
 The pool was surprisingly large and cold. After a short swim, Brent joined Hero
 in the long, narrow steam room, empty except for two grey-haired men speaking
 German.
 
-Brent sat down next to Hero. He had a wet towel over his eyes.
+Brent sat down next to Hero, who had a wet towel over his eyes.
 
 "How do you feel about this building?" asked Hero.
 
@@ -142,7 +144,7 @@ moment correctly.
 "Fresh water. Hard to find freshwater pool, with no chlorine," said Hero, in
 English.
 
-"After getting dressed, let's get hamburgers, okay?" continued Hero, in Mandarin
+"After locker room, let's get hamburgers, okay?" continued Hero, in Mandarin
 again.
 
 "Sounds good," said Brent.
@@ -153,14 +155,13 @@ again.
 gesturing with a snail shell. "How to play chess, how to be a gentleman." She
 punched Hero's arm. They were old friends.
 
-Hero and Brent's host mother often brought Brent out to lunch and dinner. Brent
-was learning to enjoy these long meals at hotel restaurants. He had suddenly
-realized that
+Hero and Brent's host mother often brought Brent out to lunch and dinner, and he
+was learning to enjoy these long meals at hotel restaurants. He just had to get
+into a certain mental place.
 
-They were planning Brent staying at Hero's home during winter break to watch
-his dog, while Hero was travelling in Canada for a project. Hero needed someone
-to watch his dog, and Brent needed a quiet place to finish his college
-applications.
+This dinner was to plan for winter break. Brent was going to stay at Hero's home
+to watch his dog while Hero was travelling in Canada for a project. Brent needed
+a quiet place to finish his college applications.
 
 ---
 
@@ -168,11 +169,8 @@ Brent took the long MRT ride to the edge of the city, and then walked up a road
 bordered by tufted grass. It was drizzling.
 
 It was refreshing to wake up in Hero's home. The winter sun warmed the wooden
-floors of the guest bedroom, and Brent got out of bed with a sense of purpose
-and well-being.
-
-The only time he left was to go to the area around Taipei main station to buy
-an external hard drive.
+floor of the guest bedroom, and Brent got out of bed with a sense of purpose and
+well-being.
 
 When it got dark, Brent tried to use some of Hero's fancy ingredients to make
 dinner. The pasta ended up being too salty. The pot lay unwashed in the
@@ -188,17 +186,19 @@ He watched educational films about important construction projects in Taiwan's
 past, including the Xueshan tunnel project where twenty-five people died over
 the course of fifteen years of construction.
 
+The only time he left was to go to the underground street by Taipei main station
+to buy an external hard drive.
+
 ---
 
 At six PM on New Year's Eve Brent stopped working and messaged Emilio, an
 exchange student from Mexico, to invite him to hang out at Hero's house. Brent
-told him it'd be a good place to watch the fireworks, situated above the city,
-and that he should invite the Brazilians.
+told him it'd be a good place to watch the fireworks, situated above the city.
 
 Brent paced back and forth, waiting for a response. He was worried that just two
-or three people would come and be disappointed. It was a long trip from the
-hookah bars to Yangmingshan, and Brent was afraid that the Brazilians would
-ather try to go to a club. Brent needed this to go well.
+or three people would come and be disappointed. It was a long trip to
+Yangmingshan, and Brent was afraid that the Brazilians would rather try to go to
+a club. Brent needed this to go well.
 
 ---
 
@@ -214,13 +214,13 @@ Brent sat in a leather chair under a lamp with a long metal neck. He felt
 accomplished, watching everyone talking and dancing happily. He could see
 fireworks shooting off Taipei 101, tiny grains of light in the distance.
 
-After midnight they ended up in a windowless room in the basement where the
-floor was covered with Tatami mats and cushions, listening to reggaeton.  Brent
-sat up against the wall talking with a girl from Columbia, watching Emilio and
-Joshua give the two Brazilian girls back rubs. This went on for a long time. The
+After midnight they went to a windowless room in the basement where the floor
+was covered with Tatami mats and cushions, listening to reggaeton. Brent sat up
+against the wall talking with a girl from Columbia, watching Emilio and Joshua
+give the two Brazilian girls back rubs. This went on for a long time. The
 orgiastic intensity made Brent uncomfortable. He was reminded of teaching some
 family friends how to masturbate back when he was eleven, across the inky
-darkness of a room above a boathouse in Muskoka, Canada.
+darkness of a room above a boathouse.
 
 ---
 
@@ -234,9 +234,9 @@ Helsa was dead.
 
 Brent touched her cold, bony joints with morbid fascination.
 
-He texted Hero, struggling to use the flip phone Hero had given him. Hero
+He texted Hero, struggling to use the burner phone Hero had given him. Hero
 repsonded almost immediately with an apology and an address, the address of
-veternarian where Brent could bring Helsa's body for disposal.
+veternarian where Brent could bring Helsa's body.
 
 What a situation, thought Brent.
 
@@ -247,10 +247,10 @@ containing Helsa's body. He had wrapped up the body in a garbage bag, worried
 that the dog's bowel's might leak.
 
 It was only about a mile to the MRT station, but Brent realized it was going to
-be a struggle. The bag was heavy against his thigh and chafed his knees.
+be a struggle. The bag was heavy against his thighs.
 
 He was starting to think about hitchhiking when a blue, three-wheeled truck
-pulled over next to him.
+pulled over in front of him, honking unnecessarily.
 
 "Where're you going?" the driver shouted out the window, showing a mouth of
 reddened teeth.
@@ -264,26 +264,31 @@ bag over the truck's tailgate.
 
 "Pretty heavy! What's in it?"
 
-"Gifts," said Brent, pushing a few items off of the passenger seat and sitting
-down. He suddenly felt optimistic.
+"Gifts," said Brent. He opened the passenger side door, pushed a few items off
+of the seat, and sat down. He suddenly felt optimistic.
 
 "I was visiting family," continued Brent, as the driver pulled back onto the
 road.
 
-"Impressive!" said the driver. "Are you Christian?"
+"Impressive!" said the driver.
+
+It felt good to be going fast. Brent was surprised by the sight and smell of
+Christmas trees, lying by the side of the road.
+
+"Are you Christian?" asked the driver.
 
 "My family is Christian, myself, I'm not sure."
 
-It felt good to be going fast. Brent was surprised by the smell of Christmas
-trees, lying by the side of the road. They quickly arrived at the base of the
-hill. Songshan station rose above the quiet commercial streets.
+They quickly arrived at the base of the hill. Songshan station rose above the
+quiet commercial streets.
 
 "We're here!" said the driver, pulling into the empty bus lane. He started to
 roll a cigarette. Brent got out of the car, looking up to see if a train was
 coming.
 
-"One second," said the driver around the cigarette, and then quickly closed the
-passenger door and stepped on the gas, the two-stroke engine whining.
+"One second," said the driver around the cigarette, and then quickly reached
+over to close the passenger door and stepped on the gas. The two-stroke engine
+whined as the truck accelerated.
 
 Brent took a few quick steps, waving at the truck. He looked for a license plate
 but there wasn't one.
