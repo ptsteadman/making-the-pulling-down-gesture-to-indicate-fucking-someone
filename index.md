@@ -1,15 +1,20 @@
 # making the pulling down gesture to indicate fucking someone
 
+Emilio took a picture with Brent and yelled "lets take another, it looks like
+you have a penis on your face!", pointing at Brent's nose on the camera screen.
+
+Brent laughed painfully. As soon as he could, he edged away from the group of
+exchange students, towards the stairs at the back of the room. 
+
 The other exchange students didn't seem to appreciate P.P. Hero's large
 collection of educational DVDs, displayed on shelves rising behind his living
-room staircase.  Brent made his way up the warm, carpeted steps, trying appear
-thoughtful as he read the titles on the jewel cases. Below, the other exchange
-students were making exaggerated conversation around boiling hot pots full of
-squid and cabbage.
+room staircase. Brent made his way up the warm, carpeted steps, trying appear
+thoughtful as he read the titles on the jewel cases: Megastructures, Man vs.
+Wild, How It's Made. 
 
 At the top of the stairs, Brent entered the kitchen, nodding politely at a group
-of older Rotarians. They were smiling broadly at each other, standing just aside
-from a fierce beam of sunlight.
+of older Rotarians. They stood just aside from a fierce beam of sunlight,
+smiling broadly at each other. 
 
 Hero was washing a knife at the sink.
 
@@ -17,15 +22,11 @@ Hero was washing a knife at the sink.
 
 Hero looked over at him and shrugged. "DVD," he said.
 
-"How many of them have you watched?"
-
-"Most," said Hero, opening his fridge. "I make time to relax and learn."
-
-Hero studied the inside of the fridge, his expressive face showing that he'd
+Hero studied the inside of the fridge, his expressive face indicating that he'd
 forgotten what he was looking for.
 
-"Ah, so," he said, selecting a taro root. He cut it up on the jet black counter
-and then swept the slices into his hand.
+"Ah, so," he said, selecting a taro root. He cut it up on the black counter and
+swept the slices into his hand.
 
 "I'll introduce you to my dog," said Hero.
 
@@ -33,8 +34,24 @@ Brent followed Hero into a dark laundry room adjacent to the kitchen.
 
 "Here she is. Helsa."
 
-A yellow lab wagged her tail quietly. Hero knelt down on a pillow besides the dog's
-bed and let her eat the taro out of his hand.
+A yellow lab wagged her tail quietly. Hero knelt down besides the dog's bed and
+let her eat the taro out of his hand.
+
+---
+
+The tall blonde girl with the acne couldn't believe that Brent was a virgin.
+
+"Why would I lie about that?" said Brent.
+
+"Aw! Brent!" said the tall girl, scrambling up over a tuft of wet reeds, stone
+and root, following the student ahead of her.
+
+The group on a short hiking trip in the hills north of Taipei, somewhere near
+Hero's house. They were inside a cloud: sections of the hiking trail appeared
+before them one by one, sometimes interrupted by small pavilions where they
+would rest. At the pavilions there was burning incense and basins of sulphur
+water, which made Brent's face feel soft and clean, promising a future of new,
+better skin.
 
 ---
 
@@ -44,10 +61,6 @@ of Zhongxiao East Road.
 
 "There are issues with your lateness to school," said Hero. He lowered his head
 and slurped his French Onion soup.
-
-Brent wanted Hero to be different from the other Rotarians. He had wanted this
-since the orientation, when Hero's speech had sent a shiver down his spine. It
-had spoken to his expectations for life.
 
 Brent explained that he was staying up late writing his college application
 essays, that he was going to apply for a special scholarship. That's why he was
@@ -70,21 +83,40 @@ Brent was suddenly very aware of his body, ashamed, staring at Hero's wine glass
 
 ---
 
-The tall blonde girl with the acne couldn't believe that Brent was a virgin. It
-smelled like sulhpur and was raining. P.P. Power was leading a hiking trip
-through the Yangmingshan hills. The softness of Brent's face after the sulphur
-bath promised new, better skin.
+Every few weeks Brent had dinner with Hero and his wife, sometimes at a
+restaurant in the city and sometimes at Hero's home.
 
-Always with the smell of sulphur. I look forward to my skincare routine.  Brent
-felt in Hero the desire to express something that wasn't part of the list of his
-life, JSTOR
-Torrenting
+Brent discovered that he could make these dinners very pleasant if he simply
+asked questions and let Hero explain something he cared about. His wife mostly
+smiled and stared at her hands.
 
-Brent watched as Hero .
+She was an art teacher, and Brent started to bring her drawings to critique.  He
+drew during class, drawing his teachers, who he almost completely failed to
+understand, and the courtyard outside the classroom. Hero's wife loved to draw
+from life. She showed Brent her drawing technique books, which were really scans
+of older books from the 1950's, full of exercises meant for an aspiring
+commercial artist. When Brent asked to borrow one of the books, she smiled and
+led Brent to the living room, shooing Helsa from the couch and opening her
+laptop.
 
-"And you can start and stop the download whenever?"
+She paused and called for Hero, using a nickname that Brent couldn't parse.
 
-"Yes."
+"Ah, she wants to show you how to use the bittorrent," said Hero, when he
+appeared behind the couch.
+
+Hero translated for his wife as she explained how to install a bittorrent
+client and use an tracker to search for art books.
+
+"You try!" said Hero, reaching over to pause an art book download. "Search!"
+
+"Wait, I can pause the downloads whenever?" said Brent. He was stunned by the
+download speed.
+
+"Yes, yes."
+
+Brent thought for a moment, and searched for "Modest Mouse". 
+
+Dozens of albums and discographies appeared.
 
 ---
 
@@ -152,16 +184,16 @@ again.
 ---
 
 "You're learning a lot from Past President Hero," said Brent's host mother,
-gesturing with a snail shell. "How to play chess, how to be a gentleman." She
-punched Hero's arm. They were old friends.
+gesturing with a snail shell. "How to play go, how to be a gentleman." She
+punched Hero's arm.
 
-Hero and Brent's host mother often brought Brent out to lunch and dinner, and he
-was learning to enjoy these long meals at hotel restaurants. He just had to get
-into a certain mental place.
+Hero and Brent's was learning to enjoy these long meals at hotel restaurants. He
+just had to get into a certain mental state away from his anxieties, focused on
+learning.
 
-This dinner was to plan for winter break. Brent was going to stay at Hero's home
-to watch his dog while Hero was travelling in Canada for a project. Brent needed
-a quiet place to finish his college applications.
+They were planning winter break. Brent was going to stay at Hero's house while
+Hero was travelling in Canada for a project. Brent needed a quiet place to
+finish his college applications, and Helsa needed company.
 
 ---
 
@@ -171,6 +203,8 @@ bordered by tufted grass. It was drizzling.
 It was refreshing to wake up in Hero's home. The winter sun warmed the wooden
 floor of the guest bedroom, and Brent got out of bed with a sense of purpose and
 well-being.
+
+But it was still hard to write his essay.
 
 When it got dark, Brent tried to use some of Hero's fancy ingredients to make
 dinner. The pasta ended up being too salty. The pot lay unwashed in the
@@ -208,11 +242,17 @@ It was a much larger group than Brent had expected.
 Brent brought out a bottle of yellowish liquor with hornets suspended in it,
 while two Brazilian engineering students figured out the sound system.
 
-making the pulling down gesture to indicate fucking someone
+When they got it working Brent felt a shiver down his spine. It was really good.
+
+Emilio grabbed the bottle from Brent and pranced around the living room, pumping
+his fist and draping his arms around two of the Columbian students who had
+started dancing with each other.
 
 Brent sat in a leather chair under a lamp with a long metal neck. He felt
 accomplished, watching everyone talking and dancing happily. He could see
-fireworks shooting off Taipei 101, tiny grains of light in the distance.
+fireworks shooting off Taipei 101, tiny grains of light in the distance. The
+tall blonde girl, (Alyssa, American), sat down next to Brent, and asked him a
+bunch of questions about his relationship with Hero and his study methods. 
 
 After midnight they went to a windowless room in the basement where the floor
 was covered with Tatami mats and cushions, listening to reggaeton. Brent sat up
@@ -235,8 +275,8 @@ Helsa was dead.
 Brent touched her cold, bony joints with morbid fascination.
 
 He texted Hero, struggling to use the burner phone Hero had given him. Hero
-repsonded almost immediately with an apology and an address, the address of
-veternarian where Brent could bring Helsa's body.
+responded almost immediately with an apology and an address, the address of
+vet where Brent could bring Helsa's body.
 
 What a situation, thought Brent.
 
@@ -244,10 +284,10 @@ What a situation, thought Brent.
 
 A few hours later, Brent set off down Hero's driveway with a luxury duffel bag
 containing Helsa's body. He had wrapped up the body in a garbage bag, worried
-that the dog's bowel's might leak.
+that the dog's bowels might leak.
 
-It was only about a mile to the MRT station, but Brent realized it was going to
-be a struggle. The bag was heavy against his thighs.
+It was only about two miles to the MRT station, but Brent realized it was going
+to be a struggle. The bag was heavy against his thighs.
 
 He was starting to think about hitchhiking when a blue, three-wheeled truck
 pulled over in front of him, honking unnecessarily.
