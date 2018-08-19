@@ -1,11 +1,5 @@
 # making the pulling down gesture to indicate fucking someone
 
-Emilio took a picture with Brent and yelled "lets take another, it looks like
-you have a penis on your face!", pointing at Brent's nose on the camera screen.
-
-Brent laughed painfully. As soon as he could, he edged away from the group of
-exchange students, towards the stairs at the back of the room. 
-
 The other exchange students didn't seem to appreciate P.P. Hero's large
 collection of educational DVDs, displayed on shelves rising behind his living
 room staircase. Brent made his way up the warm, carpeted steps, trying appear
