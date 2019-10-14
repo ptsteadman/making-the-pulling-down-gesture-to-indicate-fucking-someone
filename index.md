@@ -6,11 +6,14 @@ room staircase. Brent made his way up the warm, carpeted steps, trying appear
 thoughtful as he read the titles on the jewel cases: Megastructures, Man vs.
 Wild, How It's Made. 
 
-At the top of the stairs, Brent entered the kitchen, nodding politely at a group
-of older Rotarians. They stood just aside from a fierce beam of sunlight,
-smiling broadly at each other. 
+He hoped that Hero would appear and engage with him about the DVDs, which Brent
+felt represented the wealth and control of Hero's interests: he was someone who
+made time to sit in his living room and learn about hundreds of orthogonal
+subjects. This same living room that was currently full of a of other, less
+sympathetic Rotarians and their exchange student wards, mostly from South
+America and Europe. 
 
-Hero was washing a knife at the sink.
+At the top of the stairs, Brent entered the kitchen. Hero was washing a knife at the sink.
 
 "You have so many DVDs," said Brent. "How do you say 'DVD' in Mandarin?"
 
@@ -31,21 +34,6 @@ Brent followed Hero into a dark laundry room adjacent to the kitchen.
 A yellow lab wagged her tail quietly. Hero knelt down besides the dog's bed and
 let her eat the taro out of his hand.
 
----
-
-The tall blonde girl with the acne couldn't believe that Brent was a virgin.
-
-"Why would I lie about that?" said Brent.
-
-"Aw! Brent!" said the tall girl, scrambling up over a tuft of wet reeds, stone
-and root, following the student ahead of her.
-
-The group on a short hiking trip in the hills north of Taipei, somewhere near
-Hero's house. They were inside a cloud: sections of the hiking trail appeared
-before them one by one, sometimes interrupted by small pavilions where they
-would rest. At the pavilions there was burning incense and basins of sulphur
-water, which made Brent's face feel soft and clean, promising a future of new,
-better skin.
 
 ---
 
@@ -53,21 +41,16 @@ better skin.
 Brent and Hero were eating at a French-themed restaurant on a quiet street south
 of Zhongxiao East Road.
 
-"There are issues with your lateness to school," said Hero. He lowered his head
-and slurped his French Onion soup.
+"There are issues with your lateness to school," said Hero. 
 
 Brent explained that he was staying up late writing his college application
 essays, that he was going to apply for a special scholarship. That's why he was
 late.
 
-"Still, your teachers and fellow students feel disrespected," said Hero.
-
-"I'm sorry about that," said Brent.
-
 Hero looked at Brent thoughtfully as the waiter poured a glass of wine.
 
-"You are being very foolish, I think," said Hero finally. "Why are you here? In
-Taiwan?"
+"Still, your teachers feel disrespected." said Hero finally. "Why are you here? In
+Taiwan? To stay up late on computer talking with American friends?"
 
 Brent was suddenly very aware of his body, ashamed, staring at Hero's wine glass.
 
@@ -83,34 +66,6 @@ restaurant in the city and sometimes at Hero's home.
 Brent discovered that he could make these dinners very pleasant if he simply
 asked questions and let Hero explain something he cared about. His wife mostly
 smiled and stared at her hands.
-
-She was an art teacher, and Brent started to bring her drawings to critique.  He
-drew during class, drawing his teachers, who he almost completely failed to
-understand, and the courtyard outside the classroom. Hero's wife loved to draw
-from life. She showed Brent her drawing technique books, which were really scans
-of older books from the 1950's, full of exercises meant for an aspiring
-commercial artist. When Brent asked to borrow one of the books, she smiled and
-led Brent to the living room, shooing Helsa from the couch and opening her
-laptop.
-
-She paused and called for Hero, using a nickname that Brent couldn't parse.
-
-"Ah, she wants to show you how to use the bittorrent," said Hero, when he
-appeared behind the couch.
-
-Hero translated for his wife as she explained how to install a bittorrent
-client and use an tracker to search for art books.
-
-"You try!" said Hero, reaching over to pause an art book download. "Search!"
-
-"Wait, I can pause the downloads whenever?" said Brent. He was stunned by the
-download speed.
-
-"Yes, yes."
-
-Brent thought for a moment, and searched for "Modest Mouse". 
-
-Dozens of albums and discographies appeared.
 
 ---
 
@@ -216,6 +171,22 @@ the course of fifteen years of construction.
 
 The only time he left was to go to the underground street by Taipei main station
 to buy an external hard drive.
+
+The group on a short hiking trip in the hills north of Taipei, somewhere near
+Hero's house. They were inside a cloud: sections of the hiking trail appeared
+before them one by one, sometimes interrupted by small pavilions where they
+would rest. At the pavilions there was burning incense and basins of sulphur
+water, which made Brent's face feel soft and clean, promising a future of new,
+better skin.
+
+The tall blonde girl with the acne couldn't believe that Brent was a virgin.
+
+"Why would I lie about that?" said Brent.
+
+"Aw! Brent!" said the tall girl, scrambling up over a tuft of wet reeds, stone
+and root, following the student ahead of her.
+
+
 
 ---
 
