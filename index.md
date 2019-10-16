@@ -6,7 +6,7 @@ room staircase. Brent made his way up the warm, carpeted steps, trying appear
 thoughtful as he read the titles on the jewel cases: Megastructures, Man vs.
 Wild, How It's Made. 
 
-He hoped that Hero would appear and engage with him about the DVDs, which Brent
+He hoped that Hero would appear and talk with him about the DVDs, which Brent
 felt represented the wealth and control of Hero's interests: he was someone who
 made time to sit in his living room and learn about hundreds of orthogonal
 subjects. This same living room that was currently full of a of other, less
@@ -146,8 +146,8 @@ finish his college applications, and Helsa needed company.
 
 ---
 
-Brent took the long MRT ride to the edge of the city, and then walked up a road
-bordered by tufted grass. It was drizzling.
+Brent took the long MRT ride up north to the hills above the city, and then
+walked up a road bordered by tufted grass. It was drizzling.
 
 It was refreshing to wake up in Hero's home. The winter sun warmed the wooden
 floor of the guest bedroom, and Brent got out of bed with a sense of purpose and
@@ -161,9 +161,28 @@ soapstone sink until he realized that Helsa would happily lick it clean.
 
 ---
 
-The days leading up to the new year passed quickly. It was almost 2010, the
-beginning of his decade. In 2020 he'd be twenty-seven, his character would be
-more or less set.
+The days leading up to the new year passed quickly. 
+
+Brent made plans to get Christmas dinner with Sascha, a girl with all the
+qualities of the stereotypical manic pixie dream girl, (for example,
+enthusiastic, quirky feminity in a small brunette form), and also an amused
+reserve that Brent associated with her status as the first rich girl he'd ever
+met: her Dad was a Fortune 100 CEO.
+
+He was supposed to meet her at a restaurant in the marshy south east of Taipei,
+but an hour before Brent was supposed to be there he was still unwashed in front
+of his computer playing Bioshock. By the time he ran down into the underground
+mall where the restaurant was located, he was over an hour (no, an hour and a
+half) late. He had forgotten the name of the restaurant, and was making his way
+down the underground mall looking for Sascha, hating himself for forgetting and
+not having a working cell phone like most of the other exchange students. The
+underground street was huge, the length of several MRT stops, probably larger
+than made economic sense for a tropical city the size of Philadelphia. Brent
+wondered if the underground streets, built after the Third Taiwan Straits crisis
+in the late 90s, might have also be meant to serve as bomb shelters.
+
+It was almost 2010, the beginning of his decade. In 2020 he'd be twenty-seven,
+his character would be more or less set.
 
 He watched educational films about important construction projects in Taiwan's
 past, including the Xueshan tunnel project where twenty-five people died over
