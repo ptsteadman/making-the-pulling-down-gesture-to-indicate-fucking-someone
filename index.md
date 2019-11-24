@@ -2,22 +2,18 @@
 
 The other exchange students didn't seem to appreciate P.P. Hero's large
 collection of educational DVDs, displayed on shelves rising behind his living
-room staircase. Brent made his way up the warm, carpeted steps, trying appear
-thoughtful as he read the titles on the jewel cases: Megastructures, Man vs.
-Wild, How It's Made. 
+room staircase. I made my way up the sunlit, carpeted steps, trying to look
+thoughtful as I read the titles on the jewel cases: *Megastructures*, *Man vs.
+Wild*, *How It's Made*. 
 
-He hoped that Hero would appear and talk with him about the DVDs, which Brent
-felt represented the wealth and control of Hero's interests: he was someone who
-made time to sit in his living room and learn about hundreds of orthogonal
-subjects. This same living room that was currently full of a of other, less
-sympathetic Rotarians and their exchange student wards, mostly from South
-America and Europe. 
+I hoped that Hero would pass me on his way down to the living room, down to the
+welcome party. 
 
-At the top of the stairs, Brent entered the kitchen. Hero was washing a knife at the sink.
+At the top of the stairs, I entered the kitchen. Hero was washing a knife at the sink.
 
-"You have so many DVDs," said Brent. "How do you say 'DVD' in Mandarin?"
+"You have so many DVDs," I said. "How do you say 'DVD' in Mandarin?"
 
-Hero looked over at him and shrugged. "DVD," he said.
+Hero looked over at me and shrugged. "DVD," he said.
 
 Hero studied the inside of the fridge, his expressive face indicating that he'd
 forgotten what he was looking for.
@@ -25,59 +21,54 @@ forgotten what he was looking for.
 "Ah, so," he said, selecting a taro root. He cut it up on the black counter and
 swept the slices into his hand.
 
-"I'll introduce you to my dog," said Hero.
-
-Brent followed Hero into a dark laundry room adjacent to the kitchen.
-
-"Here she is. Helsa."
-
-A yellow lab wagged her tail quietly. Hero knelt down besides the dog's bed and
-let her eat the taro out of his hand.
-
+"Making medicine for my dog. She is sick," said Hero. 
 
 ---
 
-"Your host mother asked me to meet with you," said Hero, a few weeks later.
-Brent and Hero were eating at a French-themed restaurant on a quiet street south
-of Zhongxiao East Road.
+"Your host mother asked me to meet with you," said Hero, a few weeks later. He
+had summoned me to dinner at a French-themed restaurant on a quiet street south
+of my host family's home on Zhongxiao East Rd.
 
 "There are issues with your lateness to school," said Hero. 
 
-Brent explained that he was staying up late writing his college application
-essays, that he was going to apply for a special scholarship. That's why he was
-late.
+I explained that I was staying up late writing college application essays, that
+I was going to apply for a special scholarship. That's why I was late.
 
-Hero looked at Brent thoughtfully as the waiter poured a glass of wine.
+Hero looked at me thoughtfully as the waiter poured a glass of wine.
 
-"Still, your teachers feel disrespected." said Hero finally. "Why are you here? In
+"Still, your teachers feel disrespected," he said finally. "Why are you here? In
 Taiwan? To stay up late on computer talking with American friends?"
 
-Brent was suddenly very aware of his body, ashamed, staring at Hero's wine glass.
+I was suddenly very aware of his body; all I could do was stare at Hero's wine
+glass.
 
-"I want to learn Mandarin," said Brent. He repeated himself clumsily in Mandarin.
+"I want to learn Mandarin," I said. Hero didn't respond so I tried to repeat
+myself, in Mandarin. 
 
-"I'll help you," said Hero.
+Hero laughed. "I'll help you," he said.
 
 ---
 
-Every few weeks Brent had dinner with Hero and his wife, sometimes at a
-restaurant in the city and sometimes at Hero's home.
+After that I had dinner with Hero and his wife every few weeks, usually at a
+restaurant near my school.
 
-Brent discovered that he could make these dinners very pleasant if he simply
-asked questions and let Hero explain something he cared about. His wife mostly
+I discovered that I could make these dinners very pleasant if I simply asked
+questions and let Hero explain something he cared about. Hero's wife mostly
 smiled and stared at her hands.
 
+more, time passing here, Brent changing
+
 ---
 
-Early in December, Hero invited Brent to a health club on the top floor of the
+Early in December, Hero invited me to a health club on the top floor of the
 Fuxing Sogo department store. Children were running around the lobby, holding
 craft projects made of evergreen boughs and pasta.
 
-The pool was surprisingly large and cold. After a short swim, Brent joined Hero
-in the long, narrow steam room, empty except for two grey-haired men speaking
+The pool was surprisingly large and cold. After a short swim, I joined Hero in
+the long, narrow steam room, empty except for two grey-haired men speaking
 German.
 
-Brent sat down next to Hero, who had a wet towel over his eyes.
+I sat down next to Hero, who had a wet towel over his eyes.
 
 "How do you feel about this building?" asked Hero.
 
